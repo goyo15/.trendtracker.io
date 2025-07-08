@@ -2,11 +2,11 @@
 import os
 import json
 import datetime
-import openai
+from openai import OpenAI
 from markdown import markdown
 
 # 1. Load your API key
-openai.api_key = os.getenv("OPENAI_API_KEY")
+client = OpenAI()
 
 # 2. Define prompts for each category
 categories = {
