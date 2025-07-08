@@ -1,36 +1,35 @@
-// Simple loader for the latest posts (for demo, loads from posts/latest.json)
-document.addEventListener('DOMContentLoaded', () => {
-  const sectionMap = {
-    'index.html': 'latest-posts',
-    'trends.html': 'trend-posts',
-    'styles.html': 'style-posts',
-    'jokes.html': 'joke-posts',
-    'tea.html': 'tea-posts'
-  };
+// scripts/main.js
+document.addEventListener('DOMContentLoaded', async () => {
+  const container = document.querySelector('.posts');
+  if (!container) return;  // no .posts section here
 
-  // Get current page
-  const path = window.location.pathname.split('/').pop() || 'index.html';
-  const sectionId = sectionMap[path];
+  // 1. Figure out our "category" from the filename
+  const name = window.location.pathname.split('/').pop() || 'index.html';
+  let category = name.replace('.html', '');
+  if (category === '' || category === 'index') {
+    category = 'trends';    // or whichever you want as your homepage feed
+  }
 
-  if (!sectionId) return;
+  try {
+    // 2. Get the mapping of latest files
+    const latestRes = await fetch('/posts/latest.json');
+    if (!latestRes.ok) throw new Error('Could not load latest.json');
+    const latest = await latestRes.json();
 
-  fetch('posts/latest.json')
-    .then(res => res.json())
-    .then(posts => {
-      const postsEl = document.getElementById(sectionId);
-      if (!postsEl) return;
-      // Filter posts by type if not home
-      let filtered = posts;
-      if (path !== 'index.html') {
-        const type = path.replace('.html', '');
-        filtered = posts.filter(post => post.type === type);
-      }
-      postsEl.innerHTML = filtered.map(post => `
-        <div class="post-card">
-          <h2>${post.title}</h2>
-          <p>${post.summary}</p>
-          <a href="posts/${post.file}">Read more</a>
-        </div>
-      `).join('');
-    });
+    // 3. Lookup our file for today
+    const mdFilename = latest[category];
+    if (!mdFilename) throw new Error(`No post for category "${category}"`);
+
+    // 4. Fetch that markdown
+    const postRes = await fetch(`/posts/${mdFilename}`);
+    if (!postRes.ok) throw new Error(`Could not load ${mdFilename}`);
+    const markdownText = await postRes.text();
+
+    // 5. Convert to HTML and inject
+    container.innerHTML = marked.parse(markdownText);
+  }
+  catch (err) {
+    console.error(err);
+    container.innerHTML = `<p class="error">Sorry, we couldn’t load today’s post. Try again later.</p>`;
+  }
 });
