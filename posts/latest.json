@@ -1,9 +1,54 @@
-[
-  {
-    "title": "Cargo Pants Comeback!",
-    "summary": "Cargo pants are back and bolder than ever. TikTokers are styling them with bright crop tops. The meme of the day? \"When you have more pockets than problems.\"",
-    "type": "trends",
-    "file": "2025-07-05-daily.md",
-    "date": "2025-07-05"
-  }
-]
+{
+  "trends": [
+    "2025-07-08-trends-01-bussitchallenge-this-trend-involves-a-tr.md",
+    "2025-07-08-trends-02-sea-shanty-tiktoks-a-resurgence-of-tradi.md",
+    "2025-07-08-trends-03-silhouettechallenge-users-pose-in-front-.md",
+    "2025-07-08-trends-04-nostalgic-childhood-trends-users-recreat.md",
+    "2025-07-08-trends-05-cottagecore-aesthetic-a-trend-focused-on.md",
+    "2025-07-08-trends-06-tinyfacechallenge-users-using-editing-te.md",
+    "2025-07-08-trends-07-influencer-dance-challenges-popular-tikt.md",
+    "2025-07-08-trends-08-pov-point-of-view-videos-users-creating-.md",
+    "2025-07-08-trends-09-artvsartist-comparing-a-person-s-artisti.md",
+    "2025-07-08-trends-10-vegan-influencers-and-plant-based-recipe.md",
+    "2025-07-08-trends-11-budget-friendly-diy-projects-diy-and-cra.md",
+    "2025-07-08-trends-12-education-and-skill-development-an-incre.md",
+    "2025-07-08-trends-13-fitness-challenges-and-workout-tips-user.md",
+    "2025-07-08-trends-14-mental-health-awareness-tiktokers-discus.md",
+    "2025-07-08-trends-15-gaming-and-esports-increasing-interest-i.md"
+  ],
+  "styles": [
+    "2025-07-08-styles-01-e-girl-style-known-for-its-edgy-internet.md",
+    "2025-07-08-styles-02-y2k-fashion-revival-nostalgic-for-the-ea.md",
+    "2025-07-08-styles-03-cottagecore-embracing-a-romantic-country.md",
+    "2025-07-08-styles-04-gen-z-streetwear-influenced-by-urban-cul.md",
+    "2025-07-08-styles-05-vsco-girl-relaxed-and-eco-friendly-style.md",
+    "2025-07-08-styles-06-skater-fashion-drawing-inspiration-from-.md",
+    "2025-07-08-styles-07-preppy-revival-classic-and-polished-look.md",
+    "2025-07-08-styles-08-grunge-revival-channeling-the-90s-with-r.md",
+    "2025-07-08-styles-09-indie-fashion-individualistic-and-artsy-.md",
+    "2025-07-08-styles-10-sporty-chic-blending-athletic-wear-with-.md",
+    "2025-07-08-styles-11-retro-glam-channeling-old-hollywood-glam.md",
+    "2025-07-08-styles-12-art-hoe-aesthetic-artistic-and-creative-.md",
+    "2025-07-08-styles-13-k-pop-fashion-influenced-by-korean-pop-c.md",
+    "2025-07-08-styles-14-pastel-goth-combining-elements-of-gothic.md",
+    "2025-07-08-styles-15-sustainable-fashion-a-growing-trend-focu.md"
+  ],
+  "jokes": [
+    "2025-07-08-jokes-01-memes-and-internet-culture.md",
+    "2025-07-08-jokes-02-tiktok-trends.md",
+    "2025-07-08-jokes-03-video-games.md",
+    "2025-07-08-jokes-04-school-and-education.md",
+    "2025-07-08-jokes-05-social-media.md",
+    "2025-07-08-jokes-06-pop-culture-references.md",
+    "2025-07-08-jokes-07-daily-life-observations.md",
+    "2025-07-08-jokes-08-technology-and-gadgets.md",
+    "2025-07-08-jokes-09-self-deprecating-humor.md",
+    "2025-07-08-jokes-10-food-and-eating-habits.md",
+    "2025-07-08-jokes-11-family-and-relationships.md",
+    "2025-07-08-jokes-12-pets-and-animals.md",
+    "2025-07-08-jokes-13-fashion-and-trends.md",
+    "2025-07-08-jokes-14-travel-and-vacation.md",
+    "2025-07-08-jokes-15-music-and-concerts.md"
+  ],
+  "tea": []
+}
