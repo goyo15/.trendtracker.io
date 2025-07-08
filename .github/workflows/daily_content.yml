@@ -1,19 +1,25 @@
 name: Daily AI Content Generation
 
+# 1) Grant write perms to the GITHUB_TOKEN
+permissions:
+  contents: write
+
 on:
   schedule:
-    - cron: '0 8 * * *'        # Every day at 08:00 UTC (03:00 CT)
-  workflow_dispatch: {}        # Allow manual runs
+    - cron: '0 8 * * *'
+  workflow_dispatch: {}
 
 jobs:
   generate:
     runs-on: ubuntu-latest
 
     steps:
+      # 2) Checkout with persisted credentials so push can use the token
       - name: Checkout code
         uses: actions/checkout@v3
         with:
           fetch-depth: 0
+          persist-credentials: true     # <— ensures GITHUB_TOKEN is in .git/config
 
       - name: Setup Python
         uses: actions/setup-python@v4
