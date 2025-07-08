@@ -1,35 +1,42 @@
 // scripts/main.js
+// This script fetches up to 15 AI-generated posts per category and injects them into .posts
+
 document.addEventListener('DOMContentLoaded', async () => {
   const container = document.querySelector('.posts');
-  if (!container) return;  // no .posts section here
+  if (!container) return;
 
-  // 1. Figure out our "category" from the filename
-  const name = window.location.pathname.split('/').pop() || 'index.html';
-  let category = name.replace('.html', '');
-  if (category === '' || category === 'index') {
-    category = 'trends';    // or whichever you want as your homepage feed
-  }
+  // Determine category from filename (fallback to 'trends')
+  const page = window.location.pathname
+    .split('/')
+    .pop()
+    .replace('.html', '') || 'trends';
 
   try {
-    // 2. Get the mapping of latest files
+    // Load mapping of categories to today's markdown filenames
     const latestRes = await fetch('/posts/latest.json');
-    if (!latestRes.ok) throw new Error('Could not load latest.json');
+    if (!latestRes.ok) throw new Error('Failed to load latest.json');
     const latest = await latestRes.json();
 
-    // 3. Lookup our file for today
-    const mdFilename = latest[category];
-    if (!mdFilename) throw new Error(`No post for category "${category}"`);
+    const files = latest[page] || [];
+    if (!files.length) {
+      container.innerHTML = '<p class="error">No posts available for today.</p>';
+      return;
+    }
 
-    // 4. Fetch that markdown
-    const postRes = await fetch(`/posts/${mdFilename}`);
-    if (!postRes.ok) throw new Error(`Could not load ${mdFilename}`);
-    const markdownText = await postRes.text();
+    // Fetch each markdown file, convert to HTML, and collect
+    const htmlParts = await Promise.all(
+      files.map(async (fname) => {
+        const mdRes = await fetch(`/posts/${fname}`);
+        if (!mdRes.ok) return '';
+        const mdText = await mdRes.text();
+        return marked.parse(mdText);
+      })
+    );
 
-    // 5. Convert to HTML and inject
-    container.innerHTML = marked.parse(markdownText);
-  }
-  catch (err) {
+    // Inject all posts separated by an <hr/>
+    container.innerHTML = htmlParts.filter(Boolean).join('\n<hr/>\n');
+  } catch (err) {
     console.error(err);
-    container.innerHTML = `<p class="error">Sorry, we couldn’t load today’s post. Try again later.</p>`;
+    container.innerHTML = '<p class="error">Sorry, unable to load posts.</p>';
   }
 });
