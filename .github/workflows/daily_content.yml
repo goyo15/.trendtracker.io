@@ -30,10 +30,13 @@ jobs:
           OPENAI_API_KEY: ${{ secrets.OPENAI_API_KEY }}
         run: python scripts/ai_fetch.py
 
-      - name: Commit & push new posts
+      -       - name: Commit & push new posts
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
-          git add posts/ latest.json
-          git commit -m "chore: daily AI content (${ { github.event.schedule || 'manual' } })" || echo "No changes"
+          # stage the entire posts folder (includes markdown + latest.json)
+          git add posts/
+          # only commit if there are changes
+          git diff --quiet --cached || git commit -m "chore: daily AI content (${{ github.event.schedule || 'manual' }})"
           git push
+
