@@ -2,13 +2,13 @@ name: Daily AI Content Generation
 
 on:
   schedule:
-    # Runs every day at 08:00 UTC (03:00 CT)
-    - cron: '0 8 * * *'
-  workflow_dispatch:
+    - cron: '0 8 * * *'        # Every day at 08:00 UTC (03:00 CT)
+  workflow_dispatch: {}        # Allow manual runs
 
 jobs:
   generate:
     runs-on: ubuntu-latest
+
     steps:
       - name: Checkout code
         uses: actions/checkout@v3
@@ -30,13 +30,10 @@ jobs:
           OPENAI_API_KEY: ${{ secrets.OPENAI_API_KEY }}
         run: python scripts/ai_fetch.py
 
-      -       - name: Commit & push new posts
+      - name: Commit & push new posts
         run: |
           git config user.name "github-actions[bot]"
           git config user.email "github-actions[bot]@users.noreply.github.com"
-          # stage the entire posts folder (includes markdown + latest.json)
           git add posts/
-          # only commit if there are changes
           git diff --quiet --cached || git commit -m "chore: daily AI content (${{ github.event.schedule || 'manual' }})"
           git push
-
