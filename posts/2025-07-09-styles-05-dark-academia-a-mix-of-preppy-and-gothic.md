@@ -1,0 +1,5 @@
+# Dark academia: A mix of preppy and gothic elements, such as blazers, pleated skirts, and turtlenecks. — 2025-07-09
+
+Hey, fellow bookworms and fashion enthusiasts! Let's talk about the dark academia trend that's taking the internet by storm. Picture this: blazers, pleated skirts, turtlenecks - doesn't that combo just scream 'cool nerd vibes'? Dark academia is all about blending preppy and gothic styles to create a look that's both sophisticated and edgy. It's like Hogwarts meets Gossip Girl, and I am so here for it.
+
+Wearing a tailored blazer with a flowy pleated skirt and a cozy turtleneck instantly elevates your outfit to a whole new level of chic. Add some vintage accessories like a classic watch or round glasses for that extra scholarly touch. Whether you're hitting the library or just hanging out with friends, dark academia is the perfect mix of fashion and intellect. So go ahead, embrace your inner bookworm and rock those layers with pride! 🖤📚 #DarkAcademia #FashionGoals

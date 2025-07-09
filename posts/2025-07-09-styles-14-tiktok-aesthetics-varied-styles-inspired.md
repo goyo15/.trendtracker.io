@@ -1,0 +1,5 @@
+# TikTok aesthetics: Varied styles inspired by popular TikTok influencers, ranging from soft girl to baddie vibes. — 2025-07-09
+
+Alright squad, let's talk TikTok aesthetics - it's a whole vibe out there! From the soft girl aesthetic with pastels and cozy vibes to the fierce baddie look with bold makeup and killer outfits, TikTok influencers are serving up major inspo for every style. 💅🏼 Whether you're into cottagecore cuteness or e-girl edge, there's a TikTok aesthetic for everyone to rock with confidence.💫
+
+I'm talking about DIY tie-dye, layered necklaces, and maybe even a little bit of that VSCO girl energy thrown in for good measure. The best part? You can mix and match these vibes to create your own unique style that screams YOU. So hop on the trend train, experiment with different aesthetics, and don't be afraid to step out of your comfort zone.✨ Who knows, you might just discover a whole new side of yourself in the process. Stay fabulous, TikTok fam! 🌟 #TikTokAesthetics #StyleInspo #OwnYourVibe
