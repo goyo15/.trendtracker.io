@@ -1,0 +1,53 @@
+/* homepage.css */
+
+/* 1. Color variables */
+:root {
+  --clr-blue:  #007BFF;  /* vivid blue */
+  --clr-orange:#FF7F11;  /* bright orange */
+  --clr-green: #32CD32;  /* lime green */
+}
+
+/* 2. Header background & nav links */
+.homepage header {
+  background: var(--clr-blue);
+}
+.homepage nav ul li a {
+  color: #fff;
+}
+.homepage nav ul li a:hover {
+  color: var(--clr-orange);
+}
+
+/* 3. Hero banner */
+.homepage .hero {
+  background: var(--clr-green) url('https://source.unsplash.com/1600x600/?teen,technology') center/cover no-repeat;
+  color: #fff;
+  text-shadow: 0 2px 6px rgba(0,0,0,0.4);
+}
+
+/* 4. Center titles on home page */
+.homepage h1,
+.homepage h2,
+.homepage h3 {
+  text-align: center;
+}
+
+/* 5. Button styles */
+.homepage .btn {
+  display: inline-block;
+  background: var(--clr-orange);
+  color: #fff;
+  padding: 0.75rem 1.5rem;
+  border-radius: 4px;
+  text-decoration: none;
+  font-weight: bold;
+  transition: background 0.2s;
+}
+.homepage .btn:hover {
+  background: var(--clr-blue);
+}
+
+/* 6. Adjust posts grid padding */
+.homepage .posts {
+  padding: 0 2rem;
+}
