@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-07-10
+
+Hey squad, let’s talk about self-deprecating humor, the real OG of comedy. Sure, it’s funny to poke fun at ourselves once in a while, but when it becomes our go-to, it can be a major buzzkill. I get it, life can be a total dumpster fire sometimes, and cracking jokes about ourselves seems like an easy way to cope. But here’s the tea – if we’re constantly putting ourselves down, we start believing those negative vibes. It’s like giving yourself a one-way ticket to Bumsville.
+
+Let’s practice some self-love instead, babes. Own your quirks, flaunt your uniqueness, and celebrate what makes you, YOU. Life’s too short to be your own personal roast master. So, next time you want to bust out a self-deprecating joke, pause and think – is this really serving me? Trust me, positivity is a look that never goes out of style. Stay fierce, stay fabulous, and always remember you’re a boss babe, not a punching bag. Peace out! ✌️ #SelfLoveIsTheBestLove

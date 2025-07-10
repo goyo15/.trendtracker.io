@@ -1,0 +1,5 @@
+# 90s grunge revival — 2025-07-10
+
+Hey, fellow cool cats and grunge enthusiasts! 🎸 Let’s talk about the 90s grunge revival that’s takin’ over the scene lately. Can we talk about how epic it is to see flannel shirts, ripped jeans, and combat boots making a major comeback? It’s like we’ve been transported back to the days of Nirvana, Pearl Jam, and smashing guitars on stage! 🤘🏻 
+
+I mean, who doesn’t love the gritty, rebellious vibe of 90s grunge fashion and music? It’s all about embracing individuality, rocking out to raw tunes, and giving a big “whatever” to the haters. Whether you’re into laid-back grunge style or head-banging to grunge classics, this revival is all about expressing your inner rockstar! So, throw on your favorite band tee, blast some Soundgarden, and let’s embrace the nostalgia of the 90s grunge era together. Stay rad, my fellow grunge lovers! ✌🏻 #90sGrungeRevival #RockOn
