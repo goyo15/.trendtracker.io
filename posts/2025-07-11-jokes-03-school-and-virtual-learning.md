@@ -1,0 +1,5 @@
+# School and virtual learning — 2025-07-11
+
+Hey, fellow teens! Let’s talk about the never-ending debate: school and virtual learning. As much as I love staying in my PJs all day, I miss the chaotic hallways, lunchtime gossip, and actual human interaction. Virtual learning has its perks - like no early morning rush or dealing with that one annoying classmate. But let’s face it, staring at a screen all day can be as exciting as watching paint dry.
+
+Don’t even get me started on technical difficulties or the endless assignments piling up. It’s like the never-ending story, but without fluffy luck dragons. So here’s to all the students balancing Google Meets, Zoom calls, and trying to stay awake during online lectures. Hang in there, we’ll get through this together! And remember, it’s okay to have a rough day - we’re living through a global pandemic, after all. Stay strong, stay positive, and don’t forget to hit the mute button when you’ve had enough of virtual learning! ✌️#SchoolStruggles #VirtualLearningWoes

@@ -1,0 +1,5 @@
+# Slang and language quirks — 2025-07-11
+
+Hey squad, let’s talk about slang and all those language quirks that make us sound super cool or just plain extra. Slay, am I right? 🙌 From “lit” to “YEET” to “on fleek”, our generation is constantly dropping these fire phrases that keep our conversations poppin’. And don’t even get me started on “sksksk” and “and I oop”, those are like our secret weapon against any awkward silence. We’re basically fluent in Gen Z speak, making our parents feel like total boomers. But hey, we gotta keep up with the times, right?
+
+But let’s not forget about all those language quirks that make us unique. Whether it’s a certain way we say “like” or our obsession with emojis, our communication style is as individual as we are. So embrace your linguistic swagger, keep slinging those slang terms, and remember, it’s all about staying authentic to who you are. *mic drop* 💥 #StaySlayin #LanguageGameStrong
