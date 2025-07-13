@@ -1,0 +1,5 @@
+# 90s Revival — 2025-07-13
+
+Hey fam, are y'all feeling the 90s revival vibes lately? From scrunchies to mom jeans, it's like we've been transported back to the era of slap bracelets and Lisa Frank. 🌈 Let's talk about how the fashion trends are making a serious comeback – oversized flannels, bucket hats, and platform shoes are *literally* everywhere. And don't even get me started on the music scene – old school hip-hop and pop hits are back on repeat. 🎶 
+
+It's like we're living out our parents' teenage years, but with a modern twist. And TBH, I'm here for it! The 90s had some iconic style moments, and it's dope to see them being revamped for our generation. So whether you're rocking a choker necklace or binge-watching Friends on Netflix, embrace the 90s revival and let's bring some neon nostalgia into our lives! ✨ #ThrowbackVibes #90sRevival
