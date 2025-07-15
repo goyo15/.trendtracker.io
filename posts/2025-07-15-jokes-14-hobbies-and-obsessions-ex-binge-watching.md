@@ -1,0 +1,5 @@
+# Hobbies and Obsessions (ex. binge-watching TV shows) — 2025-07-15
+
+Hey fam, let’s talk hobbies and obsessions! 🌟 We all have that one thing (or five things) that we’re totally obsessed with, whether it’s binge-watching TV shows, gaming, thrifting, or creating TikTok dances. And you know what? That’s totally cool! It’s all about finding what lights a fire in your soul and running with it, no judgments here. 
+
+Personally, I’m all about binge-watching TV shows like it’s my job. From intense dramas to cheesy reality shows, I just can’t get enough. It’s like stepping into a whole new world and forgetting about the chaos of life for a while. And hey, if that’s your thing too, then you’re my kind of peeps. So go ahead, indulge in your hobbies and obsessions, embrace what makes you unique, and don’t let anyone dull your sparkle. Keep being awesome, fam! 💫 #HobbiesRock #OwnYourObsessions
