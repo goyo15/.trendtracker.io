@@ -1,0 +1,5 @@
+# E-girl/E-boy style — 2025-07-17
+
+Hey, fam! Let's talk about the e-girl/e-boy style that's taking over the internet by storm. 🌪️ From TikTok to Instagram, these digital divas and dudes are all about expressing themselves through bold colors, edgy makeup, and unique fashion choices. E-girls rock the cute-yet-edgy look with their oversized sweaters, plaid skirts, and signature heart-shaped blush. Meanwhile, e-boys are all about that skater boy vibe with chains, graphic tees, and beanies for days. 🤘🏼
+
+But here's the best part - there are no rules when it comes to e-girl/e-boy style. Mix and match, experiment with different aesthetics, and just have fun expressing your true self. So, whether you're a pastel queen or a dark and mysterious king, embrace your uniqueness and slay that e-girl/e-boy look like the digital icon you are! 💅🏼💀 #EGirl #EBoy #SlayAllDay

@@ -1,0 +1,5 @@
+# Controversial TikTok challenges causing debates online. — 2025-07-17
+
+Hey fam, let’s spill the tea on these TikTok challenges causing major drama online. From the Devious Licks trend to the Silhouette Challenge, these challenges are stirring up some serious controversy. The Devious Licks challenge might seem harmless, but it’s actually promoting destructive behavior like vandalism in schools. And don’t even get me started on the Silhouette Challenge – it’s supposed to be empowering, but some creeps out there are finding ways to remove the red filter and invade people’s privacy. 
+
+But hey, not all challenges are sketchy. Let’s focus on spreading positivity and creativity instead of getting caught up in these shady trends. Remember, it’s important to think before you participate in any challenge – make sure it’s safe, respectful, and doesn’t break any laws. Stay woke, stay safe, and keep slaying on TikTok, babes! #NoShadeJustSpillingFacts #TikTokDrama
