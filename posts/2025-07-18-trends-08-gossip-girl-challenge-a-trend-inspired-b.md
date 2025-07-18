@@ -1,0 +1,5 @@
+# "Gossip Girl Challenge" - A trend inspired by the iconic TV show "Gossip Girl," where users dress up as characters and recreate scenes. — 2025-07-18
+
+Hey fellow Upper East Siders! 🗽💋 Have you heard about the latest trend taking over social media? It’s the “Gossip Girl Challenge” and it’s everything a true fan could dream of! Channel your inner Serena, Blair, or Chuck (complete with a scarf of course) and recreate your favorite scenes from the iconic show 🎥✨. Grab your besties, slay in your designer duds, and strike a pose in front of the Met steps to show you’re truly living that GG lifestyle 💅🍸.
+
+Whether you’re a die-hard fan or a newcomer to the world of Manhattan’s elite, this trend is the perfect way to bring a little drama, fashion, and scandal into your life. So, are you ready to step into the world of Gossip Girl and see if you can handle the heat of NYC’s most elite social circle? XOXO, Gossip Girl. 💋💄👠 #GossipGirlChallenge #SpottedOnTheSteps

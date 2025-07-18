@@ -1,0 +1,5 @@
+# Relationship Drama and Crushes — 2025-07-18
+
+Hey fam, let’s spill the tea on relationship drama and crushes! 🍵💔 We all know the struggle of obsessing over someone who may or may not even know we exist, am I right? Crushing on someone can be a total whirlwind of emotions: the butterflies, the daydreaming, the overanalyzing every single text. But let’s keep it real – sometimes crushes can lead to major drama too. 
+
+Whether it’s dealing with jealousy, miscommunication, or even a full-on love triangle, relationships can get messy. And hey, that’s just part of the teen experience! But here’s the tea: it’s important to remember your worth and not let someone else’s drama bring you down. Crushes can be fun, but they shouldn’t define your happiness. So keep your head high, drama low, and remember to stay true to yourself no matter what. You got this, hun! 💁‍♀️✨ #RelationshipRealness #CrushConfessions
