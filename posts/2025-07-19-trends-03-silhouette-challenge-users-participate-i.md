@@ -1,0 +1,5 @@
+# "Silhouette Challenge" - Users participate in this challenge by posing as a silhouette against a red filter, often transitioning into revealing outfits set to the song "Put Your Head on My Shoulder." — 2025-07-19
+
+Hey fam! Let's talk about the Silhouette Challenge that's blowing up TikTok and Instagram RN. 🌟 It's all about that mysterious, sultry vibe where you pose as a silhouette in a doorway, then BAM gotta switch into a killer outfit when the beat drops. 🔥 And of course, we can't forget the iconic "Put Your Head on My Shoulder" track playing in the background setting the mood just right. 💃🎵
+
+This challenge is all about celebrating confidence, creativity, and vibing with a strong sense of empowerment. Whether you're rocking your fave fit or just feeling yourself in the shadows, this challenge is all about embracing your uniqueness and shining bright (even if you're in silhouette form). So, grab that red filter, strike a pose, and show the world your silhouette game is on point! 🌘✨ #SilhouetteChallenge #EmpowermentVibes
