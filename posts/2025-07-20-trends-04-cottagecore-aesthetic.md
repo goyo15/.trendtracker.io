@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2025-07-20
+
+Hey, fellow trendsetters! Let’s dish about the dreamy Cottagecore aesthetic that’s taking over our feeds. Picture this: flowing dresses, floral patterns, cozy blankets, and rustic vibes galore. Cottagecore is all about embracing a simpler, more nostalgic way of living – think baking bread, picking wildflowers, and enjoying the great outdoors. It’s like living in a fairy tale cottage straight out of a storybook!
+
+Whether you’re into soft, earthy colors or vintage décor, Cottagecore has something for everyone. It’s the ultimate vibe for those who want to escape the hustle and bustle of everyday life and immerse themselves in a whimsical, cottage-inspired world. So, grab your favorite mug of tea, throw on a flowy dress, and get ready to channel your inner cottagecore goddess. It’s time to bring a little nature and nostalgia into our modern lives! #CottagecoreLife 🌿✨

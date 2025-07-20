@@ -1,0 +1,5 @@
+# Social media and influencers — 2025-07-20
+
+Hey, fam! Let's spill the tea on social media and influencers. 📱💁‍♀️ We all know our feeds are clogged with sponsored posts and #ad after #ad. But can we really trust these influencers? Are they keeping it real or just chasing the bag? It’s like, are they promoting that detox tea because they actually drink it, or just 'cause they're getting paid? 🤔
+
+But hey, let's not throw shade on all influencers. Some definitely keep it 100 and use their platform for good. They’re spreading positivity, raising awareness about important issues, and inspiring us to be our best selves. 🌟 So, let’s be discerning, peeps. Follow influencers who share authentic content and stay true to who they are. ✨ Remember, you’re the boss of your feed. Curate it with influencers who uplift and empower you. And remember, likes and followers don’t define your worth. You do you, boo! 💖 #RealTalk #Influencers #Authenticity
