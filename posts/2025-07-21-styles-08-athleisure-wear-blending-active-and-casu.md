@@ -1,0 +1,5 @@
+# Athleisure wear - blending active and casual styles with leggings, sneakers, and sports bras as everyday attire — 2025-07-21
+
+Hey, squad! Let’s talk about athleisure wear – the ultimate flex in fashion for those of us who are all about that comfy-cool vibe! Leggings, sneakers, and sports bras aren’t just for the gym anymore. We’re taking these threads to the streets and slaying all day, every day! Who says you can't be comfy and stylish at the same time? Athleisure wear is all about blending active and casual styles to create killer looks that are perfect for school, chilling with friends, or even hitting up that cute new café downtown. 
+
+So, grab your fave pair of leggings, throw on some fresh kicks, and top it off with a cute sports bra - and you’re ready to slay the day! Athleisure wear is all about embracing your inner sporty spice while keeping it totally casual and chic. It’s time to show the world that you can look fierce and be comfy AF at the same time! #AthleisureQueen #SlayAllDay 💪🔥👟👑

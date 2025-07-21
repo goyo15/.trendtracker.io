@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-07-21
+
+Hey fellow teens! Let’s talk about self-deprecating humor – you know, that trend where we make fun of ourselves to get some laughs. It’s all fun and games until it starts affecting our self-esteem. Sure, a good self-roast every now and then can be a confidence booster, but when it becomes our default mode, it’s time to hit the pause button.
+
+Let’s remember, we are awesome just the way we are – flaws and all. It’s cool to laugh at ourselves, but it shouldn’t be at the expense of our self-worth. So next time you catch yourself constantly putting yourself down for the sake of a few chuckles, maybe switch up the punchline. Let’s embrace self-love and positive vibes, because we’re worth more than just being the punchline of our own jokes. Stay fab, stay fierce, and keep slaying, my friends! #SelfLove #PositiveVibes #NoMoreSelfRoasts
