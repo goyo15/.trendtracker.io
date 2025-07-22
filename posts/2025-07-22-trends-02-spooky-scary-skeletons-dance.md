@@ -1,0 +1,5 @@
+# "Spooky Scary Skeletons" Dance — 2025-07-22
+
+Hey y’all, drop what you’re doing because I’ve got the scoop on the latest dance craze that’s taking over the internet - the “Spooky Scary Skeletons” dance! 🎃💀🕺 If you haven’t already seen this viral TikTok trend, then you are seriously missing out. Picture this: a bunch of peeps dressed up as skeletons, busting out their best moves to a catchy tune - it’s like Halloween meets So You Think You Can Dance. Trust me, it’s a whole vibe!
+
+Not only is this dance hella fun to watch, but it’s also super easy to learn. So grab your besties, throw on some skeleton costumes, and get ready to slay the dance floor. And hey, even if you’ve got two left feet, remember the most important rule - just have fun with it! Who knows, you might just become the next viral sensation. So get out there and show off your spooky side, because Halloween only comes once a year! 🧟‍♂️👻 #SpookyScarySkeletons #DanceTrend #HalloweenFun
