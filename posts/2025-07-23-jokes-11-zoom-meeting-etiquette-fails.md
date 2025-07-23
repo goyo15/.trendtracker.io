@@ -1,0 +1,5 @@
+# Zoom meeting etiquette fails — 2025-07-23
+
+Hey guys, let’s talk about Zoom meeting etiquette fails because I’m pretty sure we’ve all been guilty of a few. From forgetting to mute yourself while your mom’s vacuuming in the background to showing up in your pajamas like it’s a sleepover, we’ve seen it all. And let’s not forget those epic moments when someone accidentally shares their screen and opens up a can of embarrassing memes by mistake. Seriously, we need to step up our game and make sure we’re not becoming the next viral Zoom fail sensation.
+
+But hey, it’s not all bad news! Let’s remember to mute ourselves when we’re not talking, keep our cameras on (at least from the waist up), and try not to fall asleep during the meeting (we see you, Sarah!). So, let’s all take a moment to reflect on our Zoom meeting behavior and strive to be the cool, collected attendees we know we can be. Let’s show the world that teens can handle virtual meetings like pros!

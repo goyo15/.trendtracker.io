@@ -1,0 +1,5 @@
+# VSCO girl aesthetic - Emphasizing a laid-back and beachy vibe with oversized t-shirts, scrunchies, Hydro Flasks, and Birkenstock sandals. — 2025-07-23
+
+Hey, fellow VSCO girls and wannabes! 🌊🌸 Let's talk about that iconic aesthetic we all know and love - the VSCO girl vibe! Picture this: oversized t-shirts, cute scrunchies in our hair, toting around Hydro Flasks full of refreshing hydration, and rockin' trendy Birkenstock sandals. It's all about those laid-back, carefree beach vibes, am I right? 🌞🌴
+
+There's something so chill and effortless about the VSCO girl look - like we just rolled out of bed and ended up looking cute af. Plus, it’s eco-friendly with reusable water bottles and embracing natural beauty. Whether we're snapping pics of our aesthetically pleasing outfits or spreading positive vibes, the VSCO girl aesthetic is more than just a trend - it's a lifestyle. So grab your Hydro Flask, slide on those Birks, and get ready to slay the day with that carefree beachy energy! 🌿💕 #VSCOgirlvibes
