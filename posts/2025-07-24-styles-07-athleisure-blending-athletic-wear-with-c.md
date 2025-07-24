@@ -1,0 +1,5 @@
+# Athleisure - Blending athletic wear with casual pieces for a trendy and comfy style, often featuring crop tops, leggings, and oversized hoodies. — 2025-07-24
+
+Hey fam! Let’s talk athleisure, aka the ultimate flex for looking cute and feeling comfy all day, every day. Think crop tops, leggings, oversized hoodies - basically, it’s the perfect blend of athletic gear and casual style. I mean, who doesn’t love rocking those leggings that make your booty pop while staying cozy in an oversized hoodie? 
+
+Athleisure is not just a trend, it’s a lifestyle. Whether you’re hitting the gym, chilling with friends, or even just running errands, athleisure has got your back (literally). Plus, let’s be real, it’s a total vibe for those days when you want to look effortlessly cool without putting in too much effort. So next time you’re debating what to wear, just remember: athleisure is the answer to all your style prayers. Stay comfy, stay trendy, and slay all day, babes! ✨🔥 #athleisuregoals
