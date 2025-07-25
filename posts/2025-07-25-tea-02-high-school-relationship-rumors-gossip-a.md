@@ -1,0 +1,5 @@
+# High school relationship rumors: Gossip about who's dating who at school is always a hot topic among teens. — 2025-07-25
+
+Hey babes, let's spill the tea on high school relationship rumors! 🍵💋 Whether you're sneaking a kiss in the hallway or holding hands in the cafeteria, everyone's got their eyes on you in high school. Gossip about who's dating who is like a never-ending soap opera, am I right? 😂🔥
+
+It's crazy how one glance or a simple text can spark a whole rumor mill that spreads like wildfire. But hey, who doesn't love a little drama to spice up those boring school days? Just remember, not everything you hear is true, so don't believe everything you read in those juicy texts or Snapchat screenshots. Keep it real, babes, and don't let the rumors get in the way of your relationships. Stay fab, stay drama-free, and keep slaying those teen romances! 💅🏼✨ #RumorsRuinHappiness #TeenLoveDrama

@@ -1,0 +1,5 @@
+# Silhouette Challenge - Users participate in this trend by posing in front of a red filter before transitioning into a silhouette of themselves set to the song "Put Your Head on My Shoulder" by Paul Anka. — 2025-07-25
+
+Hey fam, have you seen the latest trend taking over TikTok and Instagram? The Silhouette Challenge is giving us major red-filter vibes as we groove to "Put Your Head on My Shoulder" by Paul Anka. 🎶 It’s all about stepping into the spotlight and unleashing your inner silhouette goddess! Strike a pose in front of that crimson glow, show off your best moves, and watch the magic happen as you transform into a stunning silhouette. Talk about a glow-up moment!
+
+Whether you’re dancing, posing, or simply owning your space, this challenge is all about embracing your unique beauty and confidence. So, grab that red filter, strike a pose, and let your silhouette shine bright like the star you are! Who knows, you might just break the internet with your fierce silhouette game. Let's light up social media with some serious shadow magic! 🔥 #SilhouetteChallenge #OwnYourGlow #ShadowGameStrong
