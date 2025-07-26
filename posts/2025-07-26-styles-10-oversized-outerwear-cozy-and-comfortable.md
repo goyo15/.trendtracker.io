@@ -1,0 +1,5 @@
+# Oversized Outerwear: Cozy and comfortable, oversized coats, puffer jackets, and trench coats are popular choices for teens seeking a stylish way to stay warm. — 2025-07-26
+
+Hey, cozy queens and fashion fanatics! Let’s talk about oversized outerwear – the ultimate winter style essential. 💁‍♀️ Whether you’re into puffer jackets, trench coats, or big cozy coats, oversized outerwear is where it’s at this season. Not only do these bad boys keep you warm, but they also give you major street style cred. 🙌
+
+Throw one on over your hoodie and mom jeans for an effortlessly cool look, or dress it up with a mini skirt and chunky boots for a chic vibe. Oversized outerwear is perfect for those days when you want to be comfy yet still slay in the fashion department. ✨ Plus, you can layer them up with your fave sweaters and scarves for extra warmth and style points. So, next time you’re bundling up for the cold, reach for that oversized coat and slay the winter fashion game like the queen you are! 😘 #CozyAndStylish #WinterFashionGoals
