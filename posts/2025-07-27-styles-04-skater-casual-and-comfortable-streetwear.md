@@ -1,0 +1,5 @@
+# Skater - Casual and comfortable streetwear with influences from skate culture. — 2025-07-27
+
+Hey squad, let's talk about the rad skater style trend that's taking over the fashion scene! Skater fashion is all about those chill, laid-back vibes with a touch of rebellious flair. Think baggy graphic tees, distressed denim, and of course, killer sneakers. It's the perfect mix of casual and cool, with a nod to the skater culture that has been influencing streetwear for decades.
+
+Whether you're actually hitting the halfpipe or just hanging with your crew, skater style is all about rocking the effortlessly cool look. So grab your skateboard, throw on a hoodie, and own that laid-back attitude. Embrace the freedom and individuality that skater fashion represents, and rock those baggy pants like a boss. Stay fresh, stay fly, and keep shredding in style! Peace out, skater babes and dudes. ✌️🛹 #skaterstyle #streetwear #casualcool

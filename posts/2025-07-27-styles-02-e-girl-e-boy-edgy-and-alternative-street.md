@@ -1,0 +1,5 @@
+# E-girl/E-boy - Edgy and alternative streetwear styles influenced by social media aesthetics. — 2025-07-27
+
+Hey fam, let’s spill the tea on the latest trend takin’ over the scene – E-girl/E-boy style! ✨🖤🔥 These looks are all about servin’ some major edgy vibes with a heavy dose of alt-streetwear realness, like we just stepped outta a cyberpunk dream. Think bold graphic tees, chunky combat boots, and chillin’ in the latest Y2K accessories. It’s all about rockin’ that social media aesthetic, catchin’ those slayin’ mirror selfies, and showing off our individuality in every pixel. 📸💅🔮
+
+Whether you’re into neon colors, oversized hoodies, or rockin’ e-girl makeup, this style is all about ownin’ your vibe and takin’ the fashion world by storm. So grab your favorite chains, swipe on some black lipstick, and let’s slay the game with our E-boy/E-girl style! Can I get a YAAAS, queen? 💁‍♀️💀💥 #Egirl #Eboy #StreetwearGoals #SlayinOnTheGram
