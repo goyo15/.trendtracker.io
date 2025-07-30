@@ -1,0 +1,7 @@
+# "Silhouette Challenge" - Users participate by posting videos of themselves transitioning from fully clothed to silhouette form, set to the song "Put Your Head on My Shoulder" by Paul Anka. — 2025-07-30
+
+Hey all you trendy teens out there! Let's chat about the latest viral craze on the internet – the "Silhouette Challenge"! If you haven't seen it already, users are showing off their glow-up by transforming from fully clothed to silhouette mode, all while jamming out to the classic tune "Put Your Head on My Shoulder" by Paul Anka. It's like a modern-day Cinderella transformation, but with a catchy soundtrack.
+
+Not gonna lie, this challenge is seriously addicting to watch. From stunning outfits to creative lighting, everyone is bringing their A-game to this trend. It's all about that mystery and anticipation as the silhouette reveals a whole new vibe. So grab your best outfit, set the mood lighting, and get ready to show off your glow-up in the coolest way possible!
+
+Whether you're looking for some inspo or just want to join in on the fun, the "Silhouette Challenge" is the perfect way to showcase your style and personality. So what are you waiting for? Let's shine bright like a silhouette star ✨.

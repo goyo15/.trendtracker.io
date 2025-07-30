@@ -1,0 +1,3 @@
+# E-girl/E-boy style — 2025-07-30
+
+Hey fam, let’s talk about the hottest trend hitting the streets - E-Girl/E-Boy style! 🌟🔥 From the edgy makeup to the iconic chains and graphic tees, this aesthetic is all about making a statement. Want to rock the E-Girl vibe? Swipe on some bold eyeliner, throw on a beanie, and top it off with chunky sneakers. E-Boys, pair your oversized hoodie with some ripped jeans and a chain necklace for that effortlessly cool look. Don’t forget to add some attitude and confidence - that’s the key to pulling off this trend like a pro. So embrace your inner E-Girl or E-Boy, stand out from the crowd, and own your unique style! 💁‍♀️💥#EGirl #EBoy #Trendsetter #OwnIt
