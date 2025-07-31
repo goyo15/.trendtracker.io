@@ -1,0 +1,5 @@
+# Relationship humor (parents, siblings, friends, crushes) — 2025-07-31
+
+Hey fam! Let's talk about relationship humor and how it spices up our daily drama! 😂 Whether it's roasting our parents for their outdated slang or sharing savage memes with our siblings, laughter is the glue that keeps our bonds strong. Friends who can joke and tease each other are keepers, no doubt! And don't even get me started on crushes – the awkward moments and cheesy lines are comedy gold! 😜 
+
+But hey, a word of advice: always keep it light and respectful. It's cool to poke fun at each other, but never at the expense of someone's feelings. So, next time your mom tries to be cool by using 'lit' in a sentence, or your crush trips and falls in front of you (smooth, bro), embrace the hilarity of it all! Laughter truly is the best medicine for any relationship, so keep smiling and keep cracking those jokes. Stay sassy, peeps! ✌️💁‍♀️ #RelationshipHumor #SquadGoals

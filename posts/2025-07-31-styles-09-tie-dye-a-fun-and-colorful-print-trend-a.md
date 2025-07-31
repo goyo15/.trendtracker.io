@@ -1,0 +1,5 @@
+# Tie-dye - a fun and colorful print trend appearing on a wide range of clothing items from dresses to loungewear. — 2025-07-31
+
+Hey there, fashionistas! ✌️ Let's talk tie-dye, the grooviest trend making a major comeback in 2021! 🌈 Whether you're rocking a tie-dye dress on a sunny day or lounging in tie-dye sweats for a cozy night in, this print adds a pop of color and fun to any outfit. 💃🏼 From TikTok influencers to celebs like Kendall Jenner, everyone is jumping on the tie-dye train and we are totally here for it! 😍
+
+What's so cool about tie-dye is that it's so versatile - you can go for bold and bright colors or opt for a more subtle pastel look. Plus, you can even try your hand at DIY tie-dye projects to create your own unique pieces. 🎨 So, whether you're hitting the streets or staying in for a Netflix marathon, make sure to add a little tie-dye to your wardrobe for that extra touch of fun and flair! Stay colorful, babes! 💜🌟 #TieDyeTrend #FashionFun #ExpressYourself
