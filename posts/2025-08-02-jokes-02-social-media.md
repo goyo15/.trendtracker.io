@@ -1,0 +1,5 @@
+# Social Media — 2025-08-02
+
+Hey there, fellow teens! Let’s talk about the glorious and sometimes not-so-glorious world of social media. It’s where we go to connect, share memes, and spill the tea on all the latest drama. But let’s be real - social media can also be a hot mess. Between the pressure to look picture-perfect all the time and the never-ending comparison game, it’s easy to get caught up in a virtual reality that’s anything but real.
+
+So here’s a PSA: remember that what you see online is just a highlight reel. It’s important to take everything with a grain of salt and focus on living your best life offline too. Use social media as a tool to uplift and inspire, not to bring yourself down. And hey, don’t forget to take those screen breaks and get some fresh air once in a while. Your mental health will thank you. 💁‍♀️ #SocialMediaRealTalk #LiveYourBestLife
