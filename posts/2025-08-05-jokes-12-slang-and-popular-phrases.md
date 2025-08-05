@@ -1,0 +1,5 @@
+# Slang and popular phrases — 2025-08-05
+
+Hey fam, let's talk about slang and popular phrases that are taking over our vocab, am I right? It's like, the language game is always evolving and we gotta keep up to stay relevant. From "savage" to "lit" to "clap back", there are so many iconic phrases that define our generation. And don't even get me started on how a simple "yasss queen" can convey so much energy and support. 
+
+But let's be real, not all slang sticks around. Remember when we thought "bae" was here to stay forever? RIP, it's practically ancient history now. It's all about being on trend and knowing what's hot in the language scene. So next time you hear a new phrase, don't be hesitant to try it out and add it to your vocab. Who knows, you might just start a new trend that has everyone saying, "OMG, that's so fetch!" Keep slaying with your words, fam! 😎✌️ #SlayingTheLanguageGame #OnFleekSlang
