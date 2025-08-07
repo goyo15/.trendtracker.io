@@ -1,0 +1,5 @@
+# Sea Shanty Challenge – A viral trend where users collaborate to sing traditional sea shanties, led by the hit rendition of "The Wellerman" by a Scottish postman, Nathan Evans. — 2025-08-07
+
+Hey all you cool cats and salty sailors! 🌊⚓️ Have you heard about the latest craze taking over social media? It’s the Sea Shanty Challenge, and it’s blowing up faster than a ship caught in a storm! Imagine TikTok users from all over the world joining forces to harmonize and sing traditional sea shanties together. And it all started with Nathan Evans, a Scottish postman who serenaded us with his epic rendition of "The Wellerman." This guy's voice is smoother than a freshly-tarred deck!
+
+Now, people are jumping on board this trend faster than you can say "hoist the sails!" It’s all about coming together and creating something awesome, even if we're miles apart. So grab your crew, belt out those tunes, and let’s keep this sea shanty train sailing! Who knows, maybe we'll hit the top of the charts next! Stay groovy, my fellow sailors – let’s make some waves! 🎶🌊 #SeaShantyChallenge #SailorSquadGoals #WellermanWave
