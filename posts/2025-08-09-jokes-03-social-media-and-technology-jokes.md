@@ -1,0 +1,5 @@
+# Social Media and Technology Jokes — 2025-08-09
+
+Hey fam, let’s talk about social media and tech jokes - the ultimate meme material! 📱💻 Whether it’s roasting influencers for their perfectly curated lives or poking fun at how our parents can’t even figure out how to use emojis, these jokes are straight 🔥. Who can relate to sending a risky text and then frantically checking for that "read" receipt? 🙋‍♀️ And don’t even get me started on the struggle of trying to take the perfect selfie, only to end up looking like a potato 🥔. 
+
+But hey, let’s not forget all those classic tech jokes too - like how knocking on someone’s door is now seen as a super invasive move 😂. So next time you’re scrolling through your feed or sending a meme to the group chat, remember that laughter really is the best medicine - especially when it comes to the craziness of social media and technology. Stay sassy, stay meme-ing! 💁‍♂️✨ #TechHumor #LaughTillYouLOL
