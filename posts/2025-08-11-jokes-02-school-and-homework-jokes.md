@@ -1,0 +1,5 @@
+# School and homework jokes — 2025-08-11
+
+Yo, let's talk about the ultimate struggle: school and homework. We've all been there, right? Trying to stay awake in class, pretending we actually understand math, and drowning in a sea of assignments. But hey, at least we've got jokes to make it bearable, am I right? Like, why was the math book sad? Because it had too many problems. Or how about this gem: Why did the student eat his homework? Because the teacher said it was a piece of cake!
+
+Seriously though, school and homework can be a drag, but finding humor in the chaos is key. So next time you're buried under a mountain of work, remember to laugh it off with a joke or two. And hey, if all else fails, just remember that summer break is right around the corner. Hang in there, fellow students! 💪 #SchoolLife #HomeworkHumor
