@@ -1,0 +1,5 @@
+# Fake friendship exposes — 2025-08-12
+
+Hey fam, let’s talk about fake friends today! 🚫🙅‍♀️ We’ve all been there – thought someone was ride or die only to find out they were actually ride and bye. 🙄 The worst, am I right? But here’s the tea – fake friends can be a blessing in disguise. They teach us who to trust and who to keep at arm’s length. 💅💯 
+
+Don’t let fake friendship exposes bring you down. Use them as motivators to build a squad of real ones who got your back through thick and thin. Surround yourself with people who lift you up, not bring you down. 🌟💖 Remember, it’s quality over quantity when it comes to friendships. 👯‍♀️ Don’t waste your time and energy on those who don’t deserve it. Stay true to yourself, sis, and the real ones will find their way to you. 💁‍♀️💕 #FriendshipGoals #RealRecognizeReal

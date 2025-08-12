@@ -1,0 +1,3 @@
+# Slang and trendy phrases — 2025-08-12
+
+Hey fam, let’s talk about slang and trendy phrases that are totally lit right now! 😎 Whether you’re flexing on your haters or vibing with your crew, using the right lingo is key to staying on fleek. From “sksksk” to “yeet” and “stan” to “tea”, there’s a whole world of hip phrases out there to spice up your convo game. But remember, it’s important to stay woke and not be salty about how language evolves - trends change like faster than a TikTok dance, after all. So, next time you’re chatting with your squad, don’t be basic - throw in some fresh slang and watch your clout level skyrocket. Keep slaying those words, fam! 💯 #SlangGoals #TrendyTalks #StayWoke 🔥✌️
