@@ -1,0 +1,5 @@
+# Pop culture and celebrity jokes — 2025-08-15
+
+Hey, fam! Let’s spill the tea on pop culture and celebrity jokes! 🌟 From hilarious memes to savage roasts, poking fun at our fave celebs is a whole mood. Who doesn’t love a good laugh at the expense of those living that glam lifestyle? 😂 Whether it’s a savage tweet about Kim K’s latest outfit or a meme about Taylor Swift’s exes, pop culture jokes are our guilty pleasure.
+
+But yo, let’s keep it real – there’s a fine line between funny and just plain mean. Let’s be kind to our celebs, they’re human too! So next time you’re crafting that killer joke about Kylie Jenner’s latest lip kit, remember to keep it classy. At the end of the day, it’s all in good fun. Stay sassy, stay woke, and keep serving those celeb jokes with a side of respect! 💅 #PopCulture #CelebJokes #SnarkyButSweet
