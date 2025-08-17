@@ -1,0 +1,5 @@
+# E-girl/E-boy - Alternative style influenced by anime, gaming, and internet culture, featuring colored hair, graphic tees, chains, and heavy eye makeup. — 2025-08-17
+
+Hey party people, let's chat about the trendiest style to hit the scene - E-girls and E-boys! 🎮🖤 These fierce fashionistas and fashionistos are redefining cool with their edgy looks inspired by anime, gaming, and internet culture. Think colored hair that pops like a rainbow, graphic tees plastered with iconic designs, chains that scream street style, and eye makeup so heavy you could knock someone out with a wink. 💥
+
+Whether you're grinding levels in your favorite game or binge-watching the latest anime series, the E-girl/E-boy aesthetic is the perfect way to show off your love for all things digital. So, grab your best cyber gear, unleash your inner gamer chic, and slay the virtual runway like the boss you are! 🔥💻 #EgirlEboyStyle #GameOn #DigitalDivas
