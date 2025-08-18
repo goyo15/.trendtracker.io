@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-08-18
+
+Yo, fellow teens! Today I wanna chat about self-deprecating humor – you know, when you roast yourself before anyone else has the chance to. Sure, it’s a fun way to show you’re chill and can laugh at yourself, but let’s not overdo it. Keeping it light is key – nobody wants to be around someone who’s constantly dragging themselves down. Remember, you’re awesome just the way you are!
+
+Self-deprecating humor is like a seasoning – a sprinkle here and there can add flavor, but too much can ruin the whole dish. So, let’s be kind to ourselves and use self-deprecating jokes sparingly. Plus, confidence looks good on you, so own it! Embrace your quirks, flaws, and imperfections – they’re what make you unique. And hey, if you wanna poke fun at yourself, make sure it’s all in good fun. Stay sassy, friends! ✌️ #OwnYourAwesome
