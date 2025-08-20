@@ -1,0 +1,5 @@
+# VSCO girl look - known for oversized shirts, scrunchies, hydro flasks, and Birkenstock sandals — 2025-08-20
+
+Hey fellow trendsetters! Let’s talk about the VSCO girl look that’s taking over our feeds faster than you can say “sksksk and I oop”. Oversized shirts? Check. Scrunchies? Absolutely. Hydro flasks? So necessary for that perfect VSCO girl aesthetic. And let’s not forget the Birkenstock sandals - comfy and stylish? Yes, please! 
+
+This look isn’t just about the clothes and accessories, it’s a whole vibe - laid-back, eco-conscious, and carefree. Embracing your inner VSCO girl means being unapologetically yourself, rocking the messy bun and saving the turtles one metal straw at a time. So grab your Fjällräven Kånken backpack, layer on those Pura Vida bracelets, and don’t forget to capture those sunset pics with your disposable camera. Stay salty, stay iconic, and keep shining bright like the VSCO star you are! Peace out, babes.✌️🌺 #VSCOgirl #Sksksk #AndIOop
