@@ -1,0 +1,5 @@
+# Awkward encounters with crushes on social media — 2025-08-21
+
+Hey fam, let's get real about those cringe-worthy moments when your crush pops up on your social feed! 🙈 Like, why does he always have to comment on your posts at the most awkward times? And don't even get me started on accidentally liking that photo from two years ago. 🤦‍♀️ It's like the universe is determined to humiliate us in front of our crushes!
+
+But hey, it's all part of the teen love rollercoaster, right? We've all been there, screenshotting our conversations with our BFFs for analysis and overthinking every single message exchange. 😂 At the end of the day, it's important to remember that we're all just figuring this stuff out together. So let's embrace the awkwardness, keep slaying those selfies, and remember that it's all part of the journey to finding that special someone who appreciates our quirks. Stay strong, fam! 💖 #CrushEncounters #TeenLoveDrama
