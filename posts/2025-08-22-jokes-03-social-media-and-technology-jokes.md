@@ -1,0 +1,5 @@
+# Social media and technology jokes — 2025-08-22
+
+Hey, tech-savvy peeps! Let’s talk about social media and technology jokes that totally slay! From memes mocking our addiction to screen time to relatable tweets about autocorrect fails, there’s no shortage of humor in the digital world. Who hasn’t laughed at a meme about accidentally liking your crush’s post from five years ago? Or rolled their eyes at a dad joke about passwords being like your ex – they should be strong and never shared? 😂
+
+Let’s face it, whether it’s poking fun at influencers, making light of Zoom mishaps, or simply laughing at ourselves for endlessly scrolling, these jokes truly hit different. So, next time you’re cruising through your feed, keep an eye out for those clever quips and hilarious memes that make navigating the virtual world a little more entertaining. And remember, in a world full of tech glitches, a good laugh is always just a retweet away! 💻🤣 #TechHumor #LaughOutLouder

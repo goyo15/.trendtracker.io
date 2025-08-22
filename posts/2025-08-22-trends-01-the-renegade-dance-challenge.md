@@ -1,0 +1,5 @@
+# The Renegade Dance Challenge — 2025-08-22
+
+Hey, fellow teens! 👋 Have you jumped on the latest viral dance trend yet? That’s right, I’m talking about the Renegade Dance Challenge! 💃🕺 This dance craze has taken over social media, with everyone from TikTok stars to celebrities giving it a go. And let me tell you, it’s catchy as heck! Once you start watching those slick moves, you won’t be able to resist joining in.
+
+Whether you’re a seasoned dancer or just love grooving in your bedroom, the Renegade Dance Challenge is perfect for all skill levels. So, what are you waiting for? Grab your friends, put on your favorite jam, and let loose with this addictively fun routine. Trust me, you won’t be able to stop smiling once you’ve nailed those moves. So go ahead, embrace the #RenegadeChallenge and show off your dance skills to the world! 💥🎶 #DancePartyOutOfRange
