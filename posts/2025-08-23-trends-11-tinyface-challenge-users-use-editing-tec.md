@@ -1,0 +1,5 @@
+# #TinyFace challenge - Users use editing techniques to manipulate their facial features to appear comically small in videos. — 2025-08-23
+
+Hey, y'all! So, I stumbled upon the #TinyFace challenge on social media and let me tell you, it's all kinds of hilarious!😂 Users are getting super creative with editing tools to shrink their facial features in videos, making themselves look like tiny little beings with itty bitty noses and teeny tiny eyes. Imagine your face on a baby doll, but even smaller - that's the vibe we're going for here!
+
+I've seen some seriously talented editing skills at play, and it's all in good fun. It's a cool way to break free from the boring everyday routine and just have a good laugh. Plus, it's a fun way to connect with others and spread some positivity online. So, if you're looking to shake things up and add a bit of whimsy to your feed, why not give the #TinyFace challenge a try? Trust me, you won't regret it!🤪✨ #StaySilly #TinyFaceGoals

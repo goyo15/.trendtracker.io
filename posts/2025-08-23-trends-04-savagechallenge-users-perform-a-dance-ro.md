@@ -1,0 +1,5 @@
+# #SavageChallenge - Users perform a dance routine to Megan Thee Stallion's song "Savage", often dressed in fashionable outfits. — 2025-08-23
+
+Hey, fellow savages! Let's talk about the latest viral trend taking over social media - the #SavageChallenge! 💃🔥 This dance routine set to Megan Thee Stallion's hit song "Savage" is slaying the internet one killer move at a time. From TikTok to Instagram, users are showing off their dance skills in fierce and fashionable outfits, bringing some major attitude to our feeds. 
+
+Whether you're rocking some streetwear or dressed to the nines, this challenge is all about celebrating confidence, style, and killer dance moves. So grab your friends, crank up the music, and join the #SavageChallenge craze. Let's show the world that we're unapologetically fierce and fabulous! Are you ready to bring out your inner savage? 💁‍♀️💅 #SavageChallenge #BossBabeVibes #SlayAllDay

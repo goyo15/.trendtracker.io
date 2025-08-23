@@ -1,0 +1,5 @@
+# Pastel color palette — 2025-08-23
+
+Hey babes, let’s chat about pastel perfection! Pastel color palettes are totally having a moment right now – think soft pinks, muted blues, and gentle yellows. These dreamy hues are all about adding a touch of sweetness and lightness to your life, whether you’re rocking them on your nails, in your room decor, or in your wardrobe. They’re like a breath of fresh air, bringing a sense of calm and serenity wherever they go.
+
+Feeling a little stressed? Surround yourself with pastel colors to instantly chill out. They’re the ultimate mood boosters, giving off those positive vibes we all need. Plus, pastels are so versatile! Mix and match them to create your own unique aesthetic that’s totally *you*. So, next time you’re craving a change, why not give the pastel color palette a try? Trust me, you won’t regret it. Stay pastel-perfect, gorgeous! 💖🌸 #PastelVibes #ChilloutPalette
