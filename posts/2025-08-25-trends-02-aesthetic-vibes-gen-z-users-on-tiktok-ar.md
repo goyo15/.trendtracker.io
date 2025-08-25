@@ -1,0 +1,5 @@
+# Aesthetic Vibes: Gen Z users on TikTok are obsessed with creating visually appealing content that follows specific aesthetics such as cottagecore, dark academia, and soft girl. — 2025-08-25
+
+Hey babes, let’s talk about those *aesthetic vibes* taking over TikTok! Gen Z users are all about curating visually stunning content that’s #goals in every way. From the dreamy cottagecore scenes that make you wish you lived in a fairy tale to the intellectual and moody dark academia vibes that scream "I’m smart and stylish," there’s an aesthetic for everyone. And don’t forget about the soft girl aesthetic, with its pastels and fluffy clouds making your feed a marshmallow-colored dreamland. 💕
+
+We’re just out here trying to make our feeds as pretty as our personalities, am I right? It’s all about creating that Insta-worthy content that matches our moods and makes us feel like we’re living our best lives. So, grab your notebooks, your floral dresses, and your fairy lights, because we’re about to bring those aesthetic vibes to life! Let’s create some magic, babes. 🌸✨ #aesthetics #TikTokTrends
