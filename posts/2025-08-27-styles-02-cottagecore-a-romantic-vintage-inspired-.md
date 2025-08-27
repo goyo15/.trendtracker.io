@@ -1,0 +1,5 @@
+# Cottagecore - a romantic, vintage-inspired look featuring flowy dresses, floral prints, and soft, natural colors — 2025-08-27
+
+Hey there, trendy teens! Let’s talk about the latest fashion craze taking the internet by storm - Cottagecore! This whimsical aesthetic is all about channeling those romantic, vintage vibes straight out of a storybook. Think flowy dresses that make you feel like you’re frolicking through a meadow, floral prints that scream springtime blooms, and soft, natural colors that will have you feeling like the protagonist in a classic novel.
+
+Whether you’re into embracing your inner book-loving dreamer or just want to add a touch of nostalgia to your wardrobe, Cottagecore is the trend for you! Mix and match your favorite pieces to create your own enchanted look that’s perfect for picnics in the park or capturing the ideal Instagram moment. So grab your flower crown and twirl into the whimsical world of Cottagecore - because who says you can’t be a modern-day fairy tale character? ✨🌸 #Cottagecore #VintageVibes #FashionForward
