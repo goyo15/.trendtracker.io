@@ -1,0 +1,5 @@
+# Celebrity gossip and pop culture drama — 2025-08-28
+
+Hey, glam squad! Let’s spill the tea on the juiciest celebrity gossip and pop culture drama swirling around. 🌟 From messy breakups to scandalous feuds, the Hollywood rollercoaster never stops. Who’s dating who, who shaded who on social media, and who’s got a brand new drama-filled reality show - we’re here for all of it!
+
+But let’s not forget, behind the glitz and glam, these celebs are real people too. So when we’re dishing the dirt, let’s keep it kind and remember they’re human just like us (but with better wardrobes 😉). It’s all fun and games until someone crosses the line – so let’s be the cool kids who keep it classy even while we spill the hottest tea in town. Stay fab, stay fierce, and always keep up with the latest pop culture scoop! 💅🏼✨ #CelebSlay #PopCulturePerfection #KeepingUpWithTheGossip
