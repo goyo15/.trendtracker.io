@@ -1,0 +1,5 @@
+# E-girl/E-boy Style - Characterized by dark, edgy looks, bold makeup, and a mix of grunge and kawaii elements. — 2025-08-29
+
+Hey fellow teens! Let’s talk about the iconic E-girl/E-boy style that’s taking over the internet by storm. 🖤🔥 This trend is all about embracing your dark and edgy side while still rocking some cute and quirky elements. Picture bold makeup, like winged eyeliner and heavy blush, paired with a mix of grunge and kawaii fashion vibes. Think chains, oversized hoodies, checkerboard prints, and maybe even some platform boots! 🤘🏼💖
+
+E-girls and E-boys aren’t afraid to stand out and express themselves with unique and daring looks. It’s all about confidence and owning your individuality. So, if you’re into mesh tops, colorful hair, and a touch of attitude, then this style might just be your new obsession. Embrace the darkness with a pop of pastel and let your personality shine through your fashion choices. Stay fierce, stay fabulous! ✌🏼💜 #Egirl #Eboy #FashionForward
