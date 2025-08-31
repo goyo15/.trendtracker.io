@@ -1,0 +1,5 @@
+# VSCO girl aesthetic - characterized by oversized t-shirts, scrunchies, and eco-friendly accessories. — 2025-08-31
+
+Hey VSCO girls and guys! 🌊🌿 Let’s talk about the iconic VSCO girl aesthetic that’s taking over our feeds and real life! 📸✨ Who doesn’t love rocking those oversized t-shirts, scrunchies in every color, and showing off our eco-friendly accessories? 🌍🌻 It’s all about that laid-back, beachy vibe and caring for our planet at the same time. 🌺🌞
+
+We’re out here sipping our hydro flasks, saying no to plastic straws, and spreading positive vibes wherever we go. 💧🌈 Whether we’re chilling at the beach, hitting the mall, or just hanging out with friends, we’re always repping that VSCO girl style. 🌴📷 So keep snapping those pics, posting those #savetheturtles stories, and living your best VSCO life! 🐢✌️ Stay groovy, stay stylish, and always stay true to that VSCO aesthetic! 💖🌸 #VSCOgirlaesthetic #Sksksk #AndISoop #SaveThePlanet

@@ -1,0 +1,5 @@
+# Dance challenges, such as the "Savage Love" and "Say So" dances — 2025-08-31
+
+Hey all you cool cats and kittens! 🐾 Let’s talk about dance challenges, because who doesn’t love a good TikTok trend?! From the “Savage Love” to “Say So” dances, these challenges are taking over our feeds and giving us all something fun to do during quarantine. Whether you’re a seasoned dancer or just like to bust a move in your bedroom, these challenges are a great way to vibe out and showcase your skills (or lack thereof, no judgment here! 🤪).
+
+Not only are these dances fun to learn and perform, but they also bring people together from all around the world. It’s like we’re all part of this big virtual dance party, and who wouldn’t want to be a part of that?! So grab your phone, put on your favorite song, and let’s get dancing, because life’s too short to not have a little fun! 💃🕺 #DanceChallengeAccepted
