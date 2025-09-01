@@ -1,0 +1,5 @@
+# Technology and social media — 2025-09-01
+
+Hey there, tech-savvy peeps! Let's talk about technology and social media, shall we? We all know our phones are basically an extension of our hand at this point. From scrolling through TikTok to sending memes to our group chat, we're constantly connected. But let's not forget the dark side of social media too - the pressure to present a perfect life, the comparison games, and the endless scroll that can suck us in for hours.
+
+It's important to find a balance and take breaks from the digital world. Go for a walk, read a book, or have a face-to-face chat with a friend (crazy concept, I know). Remember, your worth isn't defined by your follower count or how many likes you get. Embrace your real self beyond the filters and captions. So, let's enjoy the perks of technology, but let's also remember to unplug and live in the moment. Peace out! ✌️ #TechTalks #DisconnectToReconnect

@@ -1,0 +1,5 @@
+# Educational content on social justice issues — 2025-09-01
+
+Hey there, fam! Let’s chat about the real deal - educational content on social justice issues. 🌟 It’s time to break the silence and get woke about the important stuff that affects our world. Whether it’s racism, LGBTQ+ rights, gender equality, or environmental justice, we need to educate ourselves and others on these crucial topics.
+
+So, where can you find this lit content? From IG infographics to Twitter threads, YouTube videos, podcasts, and even TikTok rants - there’s TONS of resources out there waiting for you to dive in. And guess what? It’s not just about raising awareness, it’s about taking action too. Speak up, stand up, and make a difference in your community. Let’s use our voices to empower and uplift those who need it most. Spread love, spread knowledge, and let’s create a more just and equal world. 💪🏼✨ #StayWoke #SocialJusticeWarriors #EducateToElevate 💬
