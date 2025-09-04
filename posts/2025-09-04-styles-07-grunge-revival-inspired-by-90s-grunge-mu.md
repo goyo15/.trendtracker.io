@@ -1,0 +1,5 @@
+# Grunge revival - Inspired by '90s grunge music scene with plaid shirts, ripped jeans, combat boots, and band tees. — 2025-09-04
+
+Hey there, grunge lovers and wannabe rockstars! 🎸🖤 Let’s talk about the ultimate vibe that’s making a major comeback – the '90s grunge revival! Channel your inner Kurt Cobain or Courtney Love with plaid shirts, ripped jeans, combat boots, and band tees that scream "I don’t care, but also I look freakin’ cool." 🤘🏼
+
+Whether you’re blasting Nirvana, Pearl Jam, or Hole through your headphones, or just scrolling through their iconic concert pics on Insta for inspo, grunge fashion is all about that rebellious, DGAF attitude. Mix and match your pieces for that effortlessly edgy look that says, “Yeah, I might be a mess, but I’m a stylish mess.” So grab your flannel, lace up those boots, and embrace the gritty, raw energy of the '90s grunge scene. Let’s rock out and own it, because grunge never dies – it just evolves. Stay rad, loves! ✌🏼🖤🤘🏼 #GrungeRevival #90sForever
