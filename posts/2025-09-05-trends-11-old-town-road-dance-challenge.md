@@ -1,0 +1,5 @@
+# "Old Town Road" dance challenge — 2025-09-05
+
+Hey fam, have you heard about the latest craze taking over social media? That’s right, it’s the “Old Town Road” dance challenge! 🤠🎶 From TikTok to Instagram, everyone is getting down to Lil Nas X’s infectious hit and showing off their best cowboy moves. Whether you’re doing the horse gallop, the lasso twirl, or just busting out your best two-step, this challenge is all about having fun and getting your yeehaw on!
+
+Even if you’ve got two left feet, don’t be afraid to jump in and give it a go. It’s all about letting loose and enjoying the ride. So grab your friends, crank up the volume, and get ready to show off your best cowboy swagger. Who knows, you might just go viral and become the next dance sensation! 🤠💃 Let’s giddy up and show the world how we do the “Old Town Road” dance challenge in style! #YeehawChallenge #OldTownRoadDance

@@ -1,0 +1,5 @@
+# VSCO girl aesthetic — 2025-09-05
+
+Hey fam, let's talk about the VSCO girl aesthetic that’s taking over the 'Gram! From the oversized t-shirts and scrunchies to the Hydro Flask and metal straws, this trend is all about that laid-back, beachy vibe. 🌊🌞 Rocking Birkenstocks and Fjallraven Kanken backpacks is a must, along with saying "sksksk" and "and I oop" like it’s your second language. 💁‍♀️🤙 And don't forget that signature messy bun and natural, dewy makeup look to complete the aesthetic.
+
+But let's be real, VSCO girls aren't just about the stuff they own – it's also about spreading positivity and caring for the environment. So, let's keep rocking those oversized tees and saving the turtles 🐢 while staying true to ourselves. Stay VSCO, my friends! 🌟 #VSCOgirl #PositiveVibesOnly #SaveTheTurtles
