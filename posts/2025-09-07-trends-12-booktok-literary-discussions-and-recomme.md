@@ -1,0 +1,5 @@
+# BookTok (literary discussions and recommendations) — 2025-09-07
+
+Hey guys, let's talk about BookTok - the absolute BOMB place for all things literary! 📚💥 Seriously, if you're a book lover like me and you haven't checked out BookTok yet, you are missing out BIG TIME. This platform is a gold mine of awesome book recommendations, reviews, and literary discussions that will have you adding titles to your TBR list faster than you can say "bookworm." From gripping thrillers to swoon-worthy romance novels, BookTok has got it all.
+
+The best part? You get to connect with like-minded book nerds from all over the world and geek out about your favorite reads together. It's a vibe that I can't get enough of! So grab your favorite cozy blanket, brew some tea, and dive into the bookish paradise that is BookTok. Trust me, your bookshelf will thank you later. 📖✨ #BookTok #BookishVibes #ReadingIsCool
