@@ -1,0 +1,5 @@
+# School and homework woes — 2025-09-11
+
+Hey fam, let’s talk about the ultimate struggle in our lives – school and homework woes. 📚💔 I swear, teachers be stacking us with assignments like they’re getting paid per worksheet or something. And don’t even get me started on those group projects where you end up doing all the work while Derek sits there playing Fortnite. 🙄 It’s like a never-ending cycle of due dates and stress levels through the roof.
+
+But hey, we gotta stay positive, right? Power through those late-night study sessions, fuel up on snacks, and remember that feeling of satisfaction when you finally submit that last assignment. And when the going gets tough, just remember - you’re one step closer to summer break and endless Netflix binges. So let’s hustle hard, slay those grades, and show those teachers what we’re made of. We got this, fam! 💪🏼✨ #SchoolStruggles #HomeworkHustle
