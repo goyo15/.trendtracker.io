@@ -1,0 +1,5 @@
+# Renegade Dance - The Renegade dance routine, choreographed by Jalaiah Harmon, continues to be a popular trend on TikTok. — 2025-09-13
+
+Hey, fam! 🌟 Let's talk about the OG of viral dance trends - the Renegade dance! 💃🔥 This iconic routine, originally choreographed by the talented Jalaiah Harmon, is still Rockin' TikTok timelines everywhere! 🤳🎶 The Renegade dance is the ultimate vibe, with its killer moves and infectious beat that keeps us all groovin'! 🕺✨ 
+
+Jalaiah Harmon nailed it with this dance, and it's no wonder it's still slaying the TikTok game! So, if you haven't learned the Renegade dance yet, what are you waiting for?! Get up, practice those moves, and join the Renegade squad! 🙌🤩 Let's keep spreading those positive dance vibes and rock the virtual dance floor like there's no tomorrow! 💥💃 #RenegadeDance #TikTokFam #DanceGoals 🌈🎉
