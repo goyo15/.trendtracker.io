@@ -1,0 +1,5 @@
+# VSCO girl aesthetic — 2025-09-14
+
+Hey, lovelies! Let’s talk about the VSCO girl aesthetic that’s been taking over our feeds lately. 🌸🌿 If you’re all about that Hydro Flask, scrunchie life, and oversized t-shirts, then you’re probably already rocking the VSCO girl style. And let’s not forget those Fjallraven Kanken backpacks and Birkenstocks – the ultimate VSCO essentials! 🎒🌈 
+
+But it’s not just about the clothes and accessories, it’s a whole vibe – carefree, eco-friendly, and all about spreading positivity. From saving the turtles to using reusable straws, VSCO girls are all about making a difference, one scrunchie at a time. 🐢💖 So, whether you’re editing your pics with the classic VSCO filters or just chilling with your girls at the beach, embrace your inner VSCO girl and let your laid-back, nature-loving spirit shine through! ✨🌊 #VSCOgirl #SaveTheTurtles #PositiveVibes

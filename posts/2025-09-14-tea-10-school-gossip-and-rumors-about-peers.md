@@ -1,0 +1,5 @@
+# School gossip and rumors about peers — 2025-09-14
+
+Hey, fellow teens! Let’s talk about school gossip – you know, the whispers in the hallways and the rumors that spread faster than wifi connection. It’s like a never-ending game of broken telephone, where the truth gets twisted into something unrecognizable. We’ve all been there, hearing juicy tidbits about our classmates and feeling tempted to share it with our friends. But before you jump on the rumor mill bandwagon, think about how those rumors can hurt someone’s reputation and spread negativity like wildfire.
+
+Instead of spreading gossip, how about spreading kindness and compassion? Let’s be the generation that lifts each other up instead of tearing each other down. Next time you hear a rumor, think twice before passing it on. And if you’re the subject of gossip, remember that what other people say about you doesn’t define who you are. Stay true to yourself, and don’t let the noise of rumors drown out your awesomeness. Let’s create a school culture based on respect and positivity – because in the end, that’s what really matters. Stay gossip-free, my friends! ✌️ #SpreadKindnessNotRumors #GossipFreeZone

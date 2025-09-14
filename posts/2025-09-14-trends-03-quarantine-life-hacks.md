@@ -1,0 +1,5 @@
+# Quarantine Life Hacks — 2025-09-14
+
+Hey there, fellow quaranteens! So we all know that lockdown life can be a serious bore, but fear not – I've got your back with some rad quarantine life hacks to help you keep your sanity intact. Top tip: dress up for your virtual classes or hangouts. Yeah, I know we're all about those pajama bottoms, but throwing on a cute top can seriously boost your mood. 
+
+Next up, let's talk snacks. Make yourself a bomb snack box filled with all your faves to keep you fuelled during those endless Zoom calls. Don't forget to stay active too! Take a dance break, do an online workout, or even just stretch – your body will thank you. And lastly, mental health check: prioritize self-care. Whether it's meditation, journaling, or binge-watching your favorite show, make time for yourself. So there you have it, my top quarantine life hacks – stay safe, stay sassy! Peace out. ✌️🌟 #QuaranteenLife
