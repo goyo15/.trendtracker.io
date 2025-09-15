@@ -1,0 +1,5 @@
+# Alt TikTok - Subculture on TikTok with alternative and quirky content — 2025-09-15
+
+Hey fam! Let’s talk about Alt TikTok - the place where the weird and wonderful come to play on TikTok. If you’re tired of the same old dance routines and lip-syncing videos, Alt TikTok is where it’s at. This subculture is all about embracing your inner oddball and sharing alternative and quirky content that’s sure to make you stand out from the crowd.
+
+From DIY hacks that only the most creative minds could come up with, to bizarre comedy sketches that will have you laughing till you cry, Alt TikTok is a breath of fresh air in a sea of mainstream content. So if you’re looking to break free from the norm and explore a whole new side of TikTok, dive into the world of Alt TikTok and let your weirdest ideas run wild. Trust me, you won’t regret it! #AltTikTok #EmbraceTheWeirdness
