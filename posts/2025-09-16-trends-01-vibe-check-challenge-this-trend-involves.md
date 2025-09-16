@@ -1,0 +1,5 @@
+# "Vibe Check" Challenge - This trend involves users surprising their friends with unexpected acts or dancing to the beat of a specific song, often resulting in humorous reactions. — 2025-09-16
+
+Hey squad, have you heard about the latest trend taking over TikTok and Instagram? It’s the “Vibe Check” Challenge, and let me tell you, it’s got me laughing non-stop. Basically, it's all about surprising your friends with unexpected acts or busting out some epic dance moves to a particular song. Imagine catching your BFF off guard with a random dance break—talk about hilarious reactions guaranteed!
+
+I’ve been watching these videos on repeat, and let me just say, the creativity and energy are through the roof. From classic pranks to full-on dance parties, there’s no shortage of entertainment with this trend. So, grab your crew, pick a song, and get ready to bring some serious vibes to your feed. Trust me, you won’t want to miss out on this chance to show off your moves and share some laughs with your besties. It's time to vibe check your way to viral fame! ✌️🎶 #VibeCheckChallenge
