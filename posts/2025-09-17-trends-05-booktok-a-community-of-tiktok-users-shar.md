@@ -1,0 +1,5 @@
+# #BookTok: A community of TikTok users sharing book recommendations, reviews, and literary discussions. — 2025-09-17
+
+Hey there bookworms!📚✨ Have you heard of #BookTok? It's the place to be for all things bookish on TikTok!📖💫 From epic book recommendations to in-depth reviews and lively literary discussions, this community has it all! Whether you're into YA dystopian adventures or heart-wrenching contemporary romances, there's something for every reader on #BookTok.🌟
+
+I mean, where else can you find bookworms gushing over their latest reads, sharing all the feels, and fangirling/boying over fictional characters together? It's like a virtual book club on steroids!💥💕 And the best part? You can discover hidden gems and connect with fellow book lovers from all over the world, right from the comfort of your own bedroom.🌍🛋️ So, if you're looking to expand your TBR list or simply geek out over your favorite reads, hop on the #BookTok bandwagon and join the reading revolution!🚀📚 #ReadingIsCool #BookishCommunity

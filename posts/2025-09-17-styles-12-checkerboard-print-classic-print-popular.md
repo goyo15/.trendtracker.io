@@ -1,0 +1,5 @@
+# Checkerboard print - classic print popularized by Vans, seen on everything from shoes to bags to tops. — 2025-09-17
+
+Hey y’all, let’s talk about the OG print that’s been making a major comeback - checkerboard! 🏁🖤 Whether you’re a skater chick or just love some retro vibes, this classic print is everywhere and I am here for it. From Vans slip-ons to backpacks to crop tops, checkerboard print is slaying the game and adding a touch of edgy cool to any outfit. 🔥 
+
+Channel your inner ‘90s grunge with a checkerboard mini skirt or keep it casual with some checkerboard sneakers paired with your fave jeans and a graphic tee. Seriously, this print is a total mood and a must-have in your wardrobe rotation. Even celebs like Billie Eilish and Lil Nas X are rocking the checkerboard trend, so you know it’s legit. So go ahead, embrace the checkerboard craze and level up your fashion game. Stay stylish, babes! ✌️ #CheckMate #Trendsetter
