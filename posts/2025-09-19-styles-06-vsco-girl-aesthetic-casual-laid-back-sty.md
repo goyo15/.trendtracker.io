@@ -1,0 +1,5 @@
+# VSCO girl aesthetic - casual, laid-back styles featuring oversized shirts, scrunchies, and metal straws — 2025-09-19
+
+Hey guys, let’s talk about the VSCO girl aesthetic that’s been taking over our feeds lately. Think casual vibes, oversized shirts, scrunchies galore, and don’t forget the metal straws to save those turtles! 🐢🌊 Whether you’re rocking your favorite Hydro Flask or chilling in your mom jeans, this look is all about laid-back coolness and environmental awareness.
+
+Channel your inner VSCO girl by pairing a graphic tee with some bike shorts, layering on those friendship bracelets, and sticking a shell necklace on for good measure. And of course, finish off the look with a messy bun and a fresh coat of lip gloss. 💋 Whether you’re hitting up the beach or just hanging out with your squad, the VSCO girl aesthetic is all about embracing your carefree spirit and looking cute while doing it. So, grab your reusable straw and strut your stuff, VSCO girls! ✌️#SaveTheTurtles #VSCOgirl #SlayingTheAesthetic
