@@ -1,0 +1,5 @@
+# TikTok dance challenge drama causing rift among friend group — 2025-09-20
+
+Hey fam, let’s chat about the latest TikTok dance challenge drama that’s causing a major rift in our friend group. It all started when Sarah claimed she came up with the sickest dance moves, but Ashley and I know she totally stole them from a viral video. Things got heated real quick, with accusations flying left and right. Now, our once tight-knit squad is divided like the Hatfields and McCoys.
+
+The worst part? I’m caught in the middle, trying to navigate this battlefield of egos and hurt feelings. Who knew a dance challenge could cause so much chaos? But hey, drama aside, we need to remember that friendship is way more important than a silly TikTok trend. Let’s put our differences aside, bust out some fresh dance moves together, and show the world how our squad rocks it on and off the screen. Stay fierce, stay fabulous, and keep groovin’. 💃🕺 #FriendshipOverDrama #SquadGoals 🌟

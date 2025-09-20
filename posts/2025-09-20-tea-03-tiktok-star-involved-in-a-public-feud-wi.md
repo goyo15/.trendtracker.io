@@ -1,0 +1,5 @@
+# TikTok star involved in a public feud with another social media personality — 2025-09-20
+
+Hey fam, buckle up because the drama is REAL! 🎥✨ So, get this: our fave TikTok star, let's call them QueenTik2021, is currently in a FULL-ON feud with another social media personality, no names needed. 🙅🏻‍♀️💥 It all went down on the TL when QueenTik2021 spilled some ☕️ in a shady TikTok, and things have been heating up since! 👀🔥
+
+QueenTik2021 isn't holding back, throwing some serious shade and tea left and right, while their rival is clapping back with some spicy comebacks! 🌶️💥 The comment section is straight-up LIT with fans picking sides and hyping up the drama! 🙌🔥 Who do YOU think will come out on top in this epic showdown of social media stars? Drop those opinions and let's chat, fam! 🗣️💬 #dramaqueens #teatime #bringonthedrama

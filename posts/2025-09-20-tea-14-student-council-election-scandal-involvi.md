@@ -1,0 +1,5 @@
+# Student council election scandal involving vote tampering — 2025-09-20
+
+Hey, fam! 🌟 So, here’s the tea on the student council election scandal that’s got everyone shook! 🙊 Apparently, there’s been some major drama involving vote tampering. Like, I’m talking next-level scandalous! 🗳️ It’s legit like something straight out of a teen drama series, but unfortunately, it’s happening IRL at our school. 😱
+
+Rumor has it that someone sneaky has been messing with the votes, trying to stack the deck in favor of a certain candidate. 💔 Not cool, right?! Our votes are our voice, and messing with that is totally not okay. Every vote should count! 👊🏼 So, what’s gonna happen now? Will there be a re-vote? Will the truth come out? Stay tuned, fam, this election scandal is far from over! Let’s hope justice prevails and the right candidate takes the crown 👑 Fair and square, of course! #StudentCouncilDrama #VoteTamperingScandal 🚨✨

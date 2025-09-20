@@ -1,0 +1,5 @@
+# Social media and self-deprecation jokes — 2025-09-20
+
+Hey fam! 📱 Let's get real about social media and those self-deprecation jokes we see all over our feeds. It's cool to have a sense of humor and not take ourselves too seriously, but constantly putting yourself down for likes and validation ain't it. Remember, the way we talk about ourselves sets the tone for how others perceive us. Be your own hype squad and spread positive vibes instead of fishing for compliments through self-deprecation.
+
+Let's use our online platforms to uplift and inspire each other, not tear ourselves down. You're all amazing and deserve to be celebrated! Next time you feel the urge to make a self-deprecating joke, try flipping it into something empowering instead. Let's create a culture of self-love and confidence online, 'cause that's the real vibe we should be promoting. Stay fab, stay true to you! 💖 #PositiveVibesOnly

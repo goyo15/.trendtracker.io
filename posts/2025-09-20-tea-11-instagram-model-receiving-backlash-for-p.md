@@ -1,0 +1,5 @@
+# Instagram model receiving backlash for promoting dangerous diet trends — 2025-09-20
+
+Hey there, Trendsetters! 👋🏼 Let’s talk about the latest drama hitting our feeds – an Instagram model facing major backlash for promoting those sketchy diet trends. 🚫 Seriously, when will they learn that promoting dangerous habits isn’t cute or cool? 🤦🏻‍♀️ It’s like they’re living in a filter-filled fantasy land where crash diets and detox teas are the only way to be beautiful. 🙄 Newsflash: real beauty comes from being healthy and happy, not starving yourself for likes. 🌟
+
+It’s time for us to unfollow anyone pushing these toxic trends and stand up for what’s right! 💪🏼 Let’s flood our feeds with positivity, self-love, and body acceptance – because we deserve better than harmful diet culture. 💖 Remember, you are worthy and wonderful just the way you are. 💃🏻 Share this message with your squad and let’s spread some real #bodypositivity vibes! 🌈 #NoMoreDietTrends #HealthOverHype #LoveYourselfFirst 💕✨
