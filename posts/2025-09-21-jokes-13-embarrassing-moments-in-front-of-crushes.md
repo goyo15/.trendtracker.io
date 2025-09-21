@@ -1,0 +1,5 @@
+# Embarrassing moments in front of crushes — 2025-09-21
+
+Hey, fam! Let’s talk about those cringeworthy moments that seem to happen ONLY when your crush is around. I mean, seriously, does Murphy’s Law apply specifically to crush situations or what? 🙄 Like that time when I tripped over my own feet trying to look cute walking by my crush… smooth move, right? Or how about accidentally sending a text meant for your BFF to your crush instead? #Facepalm
+
+And let’s not forget those untimely burps or awkward silence moments where you just wish the floor would swallow you up whole. But hey, here’s the tea – we’re all human, and embarrassing moments happen to everyone. So next time you have a cringe-inducing run-in with your crush, just remember to laugh it off and own your awkwardness. Life’s too short to sweat the small stuff, am I right? Stay sassy, my friends! 💁🏻‍♀️✨ #CrushChronicles
