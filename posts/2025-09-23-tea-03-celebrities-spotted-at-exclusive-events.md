@@ -1,0 +1,5 @@
+# Celebrities spotted at exclusive events — 2025-09-23
+
+Hey fam! So, last night I hit up this super exclusive event and let me tell you, the celeb sightings were LIT 🔥. First up, I caught a glimpse of the one and only Zendaya looking flawless as always, serving major style goals. Then, out of nowhere, Timothée Chalamet rolls up like he just stepped out of a GQ photoshoot – no surprise there! And don’t even get me started on the power couple, Beyoncé and Jay-Z, making a grand entrance that had everyone shook. It was a star-studded affair for sure! 
+
+But let’s be real, as much as we love seeing our fave celebs out and about, we gotta remember they’re just regular people too. So next time you spot a celeb, keep it cool, snap a pic (if it’s cool with them), and remember that being starstruck is so last season. Stay chill, stay classy, and keep slaying like the true queens and kings you are 💁🏼‍♀️🤴🏽. Later, haters! #CelebSpotting #LivingForTheGlam #StayCool✌🏼✨.
