@@ -1,0 +1,5 @@
+# High school relationship scandals — 2025-09-24
+
+Hey fam, let’s spill the tea on high school relationship scandals! 🍵💥 Whether it’s cheating, drama, or breakups that make the whole hallway talk, we can’t deny that our high schools are basically mini soap operas. 🎬🔥 It’s like everyone’s relationship status is on a rollercoaster that never stops - and honestly, it’s both thrilling and exhausting to keep up with the latest gossip.
+
+But hey, let’s not get caught up in all the drama. Remember, relationships in high school are all about learning and growing. Sometimes scandals happen, but it’s how we handle them that matters. Stay true to yourself, know your worth, and don’t let anyone else’s drama derail you from your path. And hey, if you find yourself in the middle of a scandal, own it, learn from it, and come out stronger on the other side. 💪💕 So keep sipping that tea, but always remember to stay drama-free, my fellow high schoolers! 🌟✨ #RelationshipScandalSurvivors
