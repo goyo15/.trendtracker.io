@@ -1,0 +1,5 @@
+# Gen Z slang and language evolution — 2025-09-27
+
+Hey there, fellow Gen Z-ers! Let’s talk about our epic slang and how our language is constantly evolving. We’re the trendsetters of the digital age, creating words and phrases that even the millennials can’t keep up with. From “simp” to “lit” to “sksksk”, our vocab is straight-up on fleek. And who could forget the iconic “yeet” or “stan”? We’re taking everyday words and flipping them on their heads, making our conversations more fun and expressive.
+
+But here’s the tea: language changes faster than you can say “yeet”. What’s lit today might be cringe tomorrow. So, keep slaying with your slang, but also stay woke to new trends. Embrace the evolution of language, because that’s what makes us Gen Z so rad. Stay boujee, stay woke, and keep inventing the language of the future. Peace out, fam! ✌️ #LanguageGoals #GenZSlang
