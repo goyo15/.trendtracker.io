@@ -1,0 +1,5 @@
+# Dalgona Coffee — 2025-09-29
+
+Hey fam! Let’s chat about the latest coffee craze taking over our feeds – Dalgona Coffee! 🤩☕️ This trendy drink is like a caffeinated cloud in a cup, and it’s super easy to make at home. Just whip up equal parts instant coffee, sugar, and hot water until it’s light and fluffy, then spoon it over some cold milk. Voila, you’ve got yourself a photogenic and delicious treat!
+
+But let’s be real, does Dalgona Coffee live up to the hype? Absolutely! It’s the perfect blend of creamy, rich coffee and sweet, frothy goodness. Plus, the satisfaction of making those fluffy peaks yourself is totally worth it. So, next time you need a pick-me-up or just want to flex your barista skills, give Dalgona Coffee a try. Trust me, your taste buds and your Insta feed will thank you! 🌟✨ #DalgonaCoffee #TrendySips
