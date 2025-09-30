@@ -1,0 +1,3 @@
+# Random facts and trivia jokes — 2025-09-30
+
+Hey, fam! 👋🏼 Let’s talk about the real gems of random facts and trivia jokes! 💎🤓 Whether you’re a trivia night champ or just want some cool convo starters, these tidbits are the 🔥. Did you know that bananas are berries, but strawberries aren’t? Mind = blown. 🍌🍓 And get this - Scotland has 421 words for “snow”! Talk about specific. ❄️🏴 Plus, the shortest war in history was between Zanzibar and England and lasted a tiny 38 minutes. Talk about a quick sitch! ⏱️💥 So next time you need a break from the usual and wanna drop some knowledge bombs, remember these fun facts and jokes! ✨ Stay wild, stay curious! 🌟 #FactsOnFleek #TriviaTuesdays
