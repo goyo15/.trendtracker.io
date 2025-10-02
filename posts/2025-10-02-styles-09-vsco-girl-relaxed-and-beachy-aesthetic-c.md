@@ -1,0 +1,5 @@
+# VSCO Girl - Relaxed and beachy aesthetic characterized by oversized shirts, scrunchies, and hydro flasks. — 2025-10-02
+
+Hey VSCO Girls, ready to vibe with that relaxed beachy aesthetic? 🌊🌞 Rock those oversized shirts, pop in those scrunchies, and don’t forget to clutch your hydro flask like it’s your BFF. 🌸💦 It’s all about those laid-back vibes and eco-friendly choices, am I right?
+
+Channel your inner mermaid and embrace the simplicity of the VSCO Girl lifestyle. You don’t need fancy accessories to be cool - just throw on those Birkenstocks, grab your reusable straw, and you’re good to go. 🌿✌️ And let’s be real, who can resist those filtered pics and perfectly curated Vsco grids? It’s all about capturing those carefree moments and sharing the love for nature and good vibes. So get out there, soak up the sun, and stay hydrated, my fellow VSCO Girls! Peace out! 🌴🌺 #Sksksk #AndIOPoopieee🐢💚
