@@ -1,0 +1,3 @@
+# Food and eating jokes — 2025-10-06
+
+Hey, foodies! Let’s taco ’bout something we all love... food and eating jokes! 🌮🤣 Whether you’re a pizza enthusiast or a sushi snob, there’s a joke out there to tickle your taste buds and make you LOL. From cheesy puns to egg-citing one-liners, food jokes never fai-ly to crack us up! 🍳😂 So next time you’re feeling hungry for a laugh, donut worry, we’ve got you covered. Just remember, a joke a day keeps the frowns away! Now go ahead and spread the laughter like peanut butter on toast. Bon appétit, my funny foodies! 🥜🍞🤣 #FoodieFunnies #EatLaughsRepeat #MakeFoodNotWar
