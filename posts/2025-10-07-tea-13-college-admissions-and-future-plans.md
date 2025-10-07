@@ -1,0 +1,5 @@
+# College admissions and future plans — 2025-10-07
+
+Hey fam, let’s talk about the stress and excitement of college admissions and future plans! It’s like a rollercoaster ride of emotions, am I right? We spend hours perfecting our applications, stressing over SAT scores, and crossing our fingers for that acceptance letter. But hey, remember, it’s not the end of the world if you don’t get into your dream school. There are plenty of other amazing options out there, and wherever you go, it’s what you make of it that counts.
+
+And as for future plans, it’s cool to have big dreams and goals, but don’t forget to enjoy the present too. Life’s too short to be constantly worrying about the future. So, keep hustling, keep dreaming, and keep being your awesome self. The future is bright, and we’ve got this! 💪🏼✨ #CollegeAdmissions #FuturePlans #DreamBig
