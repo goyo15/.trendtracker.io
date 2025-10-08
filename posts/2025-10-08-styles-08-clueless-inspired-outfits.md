@@ -1,0 +1,5 @@
+# Clueless-inspired outfits — 2025-10-08
+
+Hey, fashionistas! If you're like me and obsessed with all things '90s, then you know that the iconic movie "Clueless" is the ultimate style inspiration. Channel your inner Cher Horowitz with plaid mini skirts, knee-high socks, and matching blazers for a look that screams preppy chic. And let's not forget about Dionne's bold accessories and Tai's grunge-inspired ensembles - there's a Clueless-inspired outfit for every vibe!
+
+Mix and match plaid with crop tops, knee-high boots, and statement jewelry to create a look that is totally "As if!" worthy. Whether you're hitting up the mall with your besties or just looking to upgrade your everyday style, Clueless-inspired outfits are a must-try this season. So grab your flip phone, turn on some classic '90s jams, and get ready to slay the fashion game like the queens of Beverly Hills High! #CluelessFashionGoals #90sVibes 🛍️💅📼

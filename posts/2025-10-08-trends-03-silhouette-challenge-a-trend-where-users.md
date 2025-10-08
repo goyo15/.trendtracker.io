@@ -1,0 +1,5 @@
+# Silhouette Challenge - A trend where users pose in front of a red light and transition into a silhouette, often set to the song "Put Your Head on My Shoulder" by Paul Anka. — 2025-10-08
+
+Hey, fellow teens! Let's talk about the latest TikTok craze - the Silhouette Challenge! 🌟 If you've been scrolling through your For You Page, you've probably seen people grooving in front of a red light and magically turning into stunning silhouettes. This trend is all about embracing your inner artist and having fun with your creative side. Plus, setting the whole thing to the smooth vibes of "Put Your Head on My Shoulder" by Paul Anka? Total *chef's kiss* perfection.
+
+Whether you're showing off your dance moves, striking a fierce pose, or simply feeling yourself in silhouette form, this challenge is all about expressing yourself and feeling confident. So grab that red light, strike a pose, and show the world your silhouette swag! Who knows, maybe you'll go viral and become the next TikTok sensation. Just remember to keep it classy and keep shining, my friends! 💃✨ #SilhouetteChallenge #TikTokTrends #FeelingMyself

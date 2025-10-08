@@ -1,0 +1,5 @@
+# Dalgona Coffee - A trend where users whip instant coffee, sugar, and water to create a frothy coffee foam topping, gaining popularity during the lockdown for its simplicity and aesthetic appeal. — 2025-10-08
+
+Hey fam! Let's talk about the latest craze during quarantine - Dalgona Coffee! Forget boring old cups of joe, this trendy drink is all about that frothy whipped coffee foam topping that’s giving me all the feels. Just whip together instant coffee, sugar, and water until it's thick and fluffy, then dollop it onto some milk for a café-worthy creation at home. It's like art in a mug, and no barista required!
+
+Dalgona Coffee is not just about the taste, it's a whole vibe. The aesthetic appeal of that perfect foam swirl on top makes for some seriously Insta-worthy pics. So, whip it up, snap a pic, and enjoy your caffeine fix in style. This trend is proof that even in lockdown, we can still make everyday moments a little more special. So grab your whisk, get creative, and sip on some Dalgona Coffee to elevate your coffee game! ☕👌 #DalgonaCoffee #QuarantineCaffeine
