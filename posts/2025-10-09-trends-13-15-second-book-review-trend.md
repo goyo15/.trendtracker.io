@@ -1,0 +1,5 @@
+# 15-second book review trend — 2025-10-09
+
+Hey there, bookworms! 📚✨ Let’s talk about the latest trend taking over BookTok and Bookstagram - the 15-second book review! 🎥📖 This trend has us ditching those long-winded reviews and getting straight to the point in just 15 seconds. Can you believe it? Gone are the days of rambling on about characters and plot twists for minutes on end. Now, we have to be quick, concise, and captivating to catch our followers’ attention in a flash.
+
+Personally, I’m all for it! These bite-sized reviews are perfect for getting a quick glimpse into a book and deciding if it’s worth adding to your TBR pile. Plus, they’re super fun to watch and create! So, get ready to see more and more of these speedy reviews flooding your feed. Will you be hopping on the 15-second book review bandwagon? Let me know in the comments! Until next time, happy reading, fam! 📖💕 #BookReviewTrend #BookTalk
