@@ -1,0 +1,3 @@
+# Slang and Catchphrases — 2025-10-12
+
+Hey, fam! Let’s spill the tea on slang and catchphrases – because, like, who even talks in normal words anymore? 😜 Slang is like our secret language, giving us major vibes and letting us flex our personality. From “yeet” to “hundo P”, we make up the rules as we go. It’s low-key lit how words can change so fast, keeping us on our toes. Catchphrases are like our power moves, the sassy one-liners that make us stand out in a sea of basic. So, next time you hear “sksksk” or “oof”, remember we’re just out here slaying the language game. Stay woke, stay fabulous, and keep being that iconic legend everyone wants to be friends with. 💁‍♀️✨ #SlayinTheSlang #LiveLoveLexicon

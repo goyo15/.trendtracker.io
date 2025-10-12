@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2025-10-12
+
+Hey fam, let’s chat about the latest aesthetic craze: Cottagecore! Think cozy cottages, floral dresses, and slow living vibes. It's all about embracing that simple, rustic charm and channeling your inner nature lover. Whether you’re into baking, gardening, or just chilling in a flowy dress with a cup of tea, Cottagecore is all about celebrating the beauty of the great outdoors and getting back to basics.
+
+So, grab your wicker basket, throw on a vintage cardigan, and let’s wander through the fields of this dreamy aesthetic together. It's like stepping into a fairytale world filled with wildflowers and whimsy. Plus, it's the perfect escape from the hustle and bustle of everyday life. So, if you're feeling the call of the wild, why not give Cottagecore a try? Trust me, once you embrace the cottage life, you'll never want to leave! ✨🌿 #CottagecoreVibes #NatureIsCalling
