@@ -1,0 +1,5 @@
+# Food and Snack Preferences — 2025-10-13
+
+Hey fam! Let’s talk about food and snack preferences because let’s be real, what we munch on says a lot about us, am I right? Are you Team Sweet or Team Savory? Are you all about that spicy life or do you prefer to keep it mild? As for me, I’m all in for some salty snacks – gimme those chips and pretzels any day! But don’t get it twisted, I will never turn down a killer cupcake or a scoop of ice cream. It’s all about balance, right?
+
+And let’s not forget the ultimate debate – pineapple on pizza, yay or nay? Personally, I say yay, but I know that can be a controversial opinion. Whatever your taste buds crave, own it! Food is one of life’s greatest joys, so indulge in what makes you happy. Life’s too short to say no to a delicious treat once in a while. Stay tasty, my friends! ✌️🍕🍦 #FoodieLife

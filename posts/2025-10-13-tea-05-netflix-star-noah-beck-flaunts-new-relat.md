@@ -1,0 +1,5 @@
+# Netflix star Noah Beck flaunts new relationship with Dixie D'Amelio on Snapchat — 2025-10-13
+
+Hey fam, did y'all catch the latest tea on Netflix heartthrob Noah Beck?! 🌟 Looks like this dude is all about flaunting his new relationship with social media sensation Dixie D'Amelio, and he's not being subtle about it either! 👀👫 From cozy couple pics to cute snaps together on Snapchat, these two are definitely making "it" official. And can we talk about those heart eyes emojis?! 😍💖
+
+Honestly, I'm here for it. Noah and Dixie are both total vibes, so why not spread some love on the 'gram, amirite? 🥰💕 Plus, it's giving us major relationship goals inspo. Who knows, maybe they'll even start a joint TikTok account next! 🕺💃 Stay tuned for more updates, because this power couple isn't slowing down anytime soon. #Goals #NoahxDixie 💫🔥

@@ -1,0 +1,5 @@
+# Singer Olivia Rodrigo rumored to be dating musician Joshua Bassett — 2025-10-13
+
+Hey, fam! 🎶 Have you heard the tea? Rumor has it that our girl Olivia Rodrigo might be getting cozy with none other than musician Joshua Bassett! 😱 These two talented cuties have been giving us major chemistry vibes ever since their hit series, "High School Musical: The Musical: The Series". Are they just friends or is there something more going on behind the scenes? 🤔
+
+With Olivia's killer vocals and Joshua's smooth guitar skills, they would make one epic power duo, don't you think? Whether they're really dating or just making sweet music together, one thing's for sure – they have us all totally shipping it! 🚢💕 Who else is living for this potential pop culture romance? Let's keep our eyes peeled for any cute IG posts or sneaky paparazzi pics to confirm if these two are the real deal. Until then, let's vibe to Olivia's songs and swoon over this potential musical love story! 🎵✨ #OliviaAndJoshua #CoupleGoals

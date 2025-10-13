@@ -1,0 +1,5 @@
+# Celebrity siblings Charli and Dixie D'Amelio face backlash for controversial YouTube video — 2025-10-13
+
+Hey, fam! 🌟 Can we just talk about the D'Amelio sisters for a sec? Charli and Dixie are usually all about bringing good vibes and killer dance moves to the internet, but they recently found themselves in hot water over a controversial YouTube video. In case you missed it, fans were quick to call them out for being a little tone-deaf in the clip, where they seemed to show disrespect for personal chefs and complained about not hitting certain follower milestones. Yikes! 🙈
+
+Of course, the internet didn't hold back, with many peeps slamming the sisters for being out of touch. But hey, we all mess up sometimes, right? It's important to remember that celebs are human too and can learn and grow from their mistakes. Here's hoping Charli and Dixie take this as a learning experience and come back stronger than ever. Keep spreading those positive vibes, girls! 💖 #StayHumble
