@@ -1,0 +1,5 @@
+# Jokes about being broke or cheap — 2025-10-14
+
+Hey fam! Let’s talk about jokes about being broke or cheap. Look, we’ve all been there, scrounging for change in our pockets or DIY-ing a meal because we can’t afford takeout. It’s all part of the struggle, right? But here’s the thing – making jokes about being broke isn’t just about being relatable, it’s about finding humor in tough situations.
+
+Sure, we might joke about counting pennies or choosing Netflix over going out, but it’s important to remember that our worth isn’t defined by our bank accounts. Being resourceful and thrifty is actually kinda cool in its own way. So, next time someone cracks a joke about being broke, embrace it! Laugh it off and keep hustling towards your goals. Because at the end of the day, being broke might be temporary, but your resilience is forever. Stay strong, stay funny, and keep slaying, you fabulous budgeting queens and kings! 💸👑 #BrokeButBoujee #ChumpChangeChic

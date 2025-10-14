@@ -1,0 +1,5 @@
+# Indie/Boho style — 2025-10-14
+
+Hey, fellow trendsetters! Let's talk about the effortlessly cool world of Indie/Boho style. It's all about mixing and matching eclectic pieces to create a unique look that screams individuality. Think flowy maxi skirts paired with vintage band tees, layered jewelry, and funky accessories. Fringe, florals, and fun prints are your best friends in this fashion game. 
+
+The best part? You can raid your grandma's closet, hit up thrift stores, or browse online vintage shops to score some one-of-a-kind finds. Embrace your inner free spirit and don't be afraid to experiment with textures and colors. Whether you're hitting up a music festival or just hanging with your squad, Indie/Boho style is guaranteed to turn heads and have you standing out in a sea of basic trends. So, channel your inner bohemian goddess and let your fashion flag fly high! ✌️🌻 #IndieVibes #BohoChic
