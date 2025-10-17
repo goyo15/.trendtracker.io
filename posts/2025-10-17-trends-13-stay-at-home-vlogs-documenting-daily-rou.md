@@ -1,0 +1,5 @@
+# Stay-at-home vlogs - Documenting daily routines and hobbies — 2025-10-17
+
+Hey fam! 🌟 Let’s talk about stay-at-home vlogs – the trend that’s taking over our feeds and giving us a peek into people’s daily lives. From morning routines to trying out new hobbies, these vlogs are like a virtual diary of how people are making the most of their time at home. Whether you’re into bullet journaling, cooking up a storm in the kitchen, or even just chilling with some Netflix, there's a vlog out there for everyone.
+
+It’s cool to see how creative peeps are getting with their time indoors, and it’s super inspiring too. Plus, watching these vlogs can give you ideas on how to switch up your own routine and add some spice to your days. So grab your snacks, hit play, and get ready to be entertained and maybe even motivated to try something new. Stay tuned for more vlog inspo coming your way! 💻🎥 #StayAtHomeVlogs #DailyInspo #HomeBoundHeroes
