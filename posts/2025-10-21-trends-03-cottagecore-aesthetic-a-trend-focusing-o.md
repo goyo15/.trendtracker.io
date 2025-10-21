@@ -1,0 +1,5 @@
+# Cottagecore aesthetic - A trend focusing on romanticizing rural life, cottage aesthetics, and nature-inspired content. — 2025-10-21
+
+Hey fellow trendsetters! Let’s talk about the latest obsession taking over social media – Cottagecore aesthetic. 🌿🏡 This trend is all about embracing the simple life, romanticizing the coziness of cottages, and going back to our roots with nature-inspired content. Think flowy dresses, flower crowns, and picnics in the meadow – total dreamy vibes! 🌻✨
+
+Cottagecore is a refreshing escape from the chaos of city living, bringing a sense of peace and tranquility to our feeds. Whether you’re into DIY crafts, gardening, or just appreciating the beauty of the great outdoors, this aesthetic has something for everyone. So, if you’re craving a dose of countryside charm in your life, jump on the Cottagecore bandwagon and let your feed bloom with all things rustic and whimsical. Get ready to channel your inner fairy-tale protagonist and embrace the magic of rural living! 🧚‍♀️💫 #Cottagecore #NatureVibes

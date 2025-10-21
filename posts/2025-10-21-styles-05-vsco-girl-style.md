@@ -1,0 +1,5 @@
+# VSCO girl style — 2025-10-21
+
+Alright, fam, let’s chat about VSCO girl style, the ultimate vibe for all you laid-back, eco-conscious queens out there. Think scrunchies, oversized tees, Birkenstocks, and of course, reusable water bottles - gotta stay hydrated while saving the planet, am I right? And let’s not forget the essential Hydro Flask, ‘cause staying #hydrated is the epitome of VSCO goals.
+
+Accessories are key, like shell necklaces, friendship bracelets, and of course, the iconic scrunchie worn on the wrist. Oh, and can we talk about the messy bun game? It’s strong with this crew. No need for fancy hairstyles when you can rock that effortless beachy look. Stay chill, stay trendy, and don’t forget to save the turtles, ‘cause that’s just what VSCO girls do best. So ditch the drama and embrace that VSCO girl aesthetic - it’s all about good vibes and saving the planet, one reusable straw at a time. Peace out, babes! 🌊🌿✌️ #SaveTheTurtles #VSCOgirlVibes

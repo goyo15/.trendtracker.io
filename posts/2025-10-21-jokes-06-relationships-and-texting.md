@@ -1,0 +1,3 @@
+# Relationships and Texting — 2025-10-21
+
+Hey fam! Let's talk relationships and texting - the ultimate combo, right? 📱💞 Texting is cool for quick convos, but let's not forget the good ol' days of face-to-face chats. People hide behind screens, but real connections happen IRL. Sometimes a text can be misinterpreted, leading to unnecessary drama. And don't even get me started on leaving people on "read"! If you're into someone, show them you care with more than just emojis. Put in the effort to call or meet up. Trust me, it's worth it. Keep your text game strong but remember, actions speak louder than words - even in the digital age. #RelationshipGoals #IRLIsTheNewLOL 😜✌️
