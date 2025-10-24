@@ -1,0 +1,3 @@
+# Class trip drama unfolds on Snapchat. — 2025-10-24
+
+Hey, lovelies! 🌟 So, can we talk about the class trip drama that's blowing up on Snapchat?! 🙀 It's like a real-life reality show playing out on our phones, and I am here for it! 😂 From secret crushes being spilled to epic pranks getting pulled, this trip is heating UP. 🔥 And let's not forget the juicy scandals and unexpected plot twists that are keeping us all on the edge of our seats. 🍿 Who needs Netflix when you have classmates providing top-notch entertainment, am I right?! 😎 Swipe up to watch the chaos go down in real-time and prepare to have your jaw on the floor! 💃 #ClassTripDrama #SnapchatSaga #TeenDramaAlert 💁‍♀️✨

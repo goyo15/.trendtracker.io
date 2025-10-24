@@ -1,0 +1,5 @@
+# YouTube celebrity feud escalates on Twitter. — 2025-10-24
+
+Hey fam, grab your popcorn 🍿 because drama is brewing in the YouTube community! The latest tea is that a feud between two high-profile YouTubers has escalated to the next level on Twitter. It all started with some shady subtweeting and now it’s turned into a full-on Twitter war. Fans are picking sides, hashtags are trending, and the drama is spilling over into YouTube videos and Instagram stories. 
+
+Honestly, I’m low-key living for the drama but also just like... why can’t we all just get along? 🤷‍♀️ Can’t we all just make content and support each other instead of bringing each other down? I get it, drama gets views, but at what cost? Hopefully, these two can squash their beef and get back to doing what they do best – entertaining us with their awesome content. Until then, I’ll be here refreshing my feed and waiting for the next update. Stay tuned for more #YouTubeDrama, folks! And remember, be kind, rewind... or something like that. ✌️ #TeamPeaceOut

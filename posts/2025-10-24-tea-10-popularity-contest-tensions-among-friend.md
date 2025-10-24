@@ -1,0 +1,5 @@
+# Popularity contest tensions among friend groups. — 2025-10-24
+
+Hey, squad! Let’s talk about the drama that goes down in friend groups when popularity becomes a competition. We all know that the struggle for social status can turn BFFs into frenemies real quick. It’s like a never-ending game of trying to one-up each other with the coolest clothes, the most followers, or the hottest crush. But let’s be real, is it worth sacrificing genuine friendships for a spot on the popular pedestal?
+
+Instead of getting caught up in the chaos of a popularity contest, let’s focus on lifting each other up and celebrating our individual awesomeness. Remember, true friends support each other no matter what, and popularity doesn’t define your worth. So, let’s ditch the drama, embrace our uniqueness, and create a friend group based on love, laughter, and genuine connection. Who’s with me? 💁🏽‍♀️✨ #SquadGoals #NoPopularityContest
