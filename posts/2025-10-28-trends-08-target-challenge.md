@@ -1,0 +1,5 @@
+# Target Challenge — 2025-10-28
+
+Hey there, fam! So, you know how we all love a good Target run, right? Well, have you heard about the Target Challenge that’s been taking over social media? It’s the latest trend where people set a spending limit (like $20 or $50) and try to find the coolest stuff in Target without going over budget. It’s like a shopping scavenger hunt and let me tell you, it’s addictive! 
+
+I mean, who doesn’t love a little retail therapy, especially when there’s a challenge involved? Plus, it’s a great way to test your money-saving skills and see just how savvy you are when it comes to finding bargains. So grab your squad, set your budget, and hit up your local Target for some serious fun and hopefully some sweet finds! Just remember, stay on budget and resist that urge to splurge. Happy shopping, peeps! #TargetChallenge #ShopSmart

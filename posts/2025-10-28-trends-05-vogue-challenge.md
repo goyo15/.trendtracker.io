@@ -1,0 +1,5 @@
+# Vogue Challenge — 2025-10-28
+
+Hey squad, have you heard of the Vogue Challenge taking over our feeds? It's all about celebrating diversity and representation in the fashion industry. With tik-tok'ers and influencers using their editing skills to create their own Vogue magazine covers featuring people of all shapes, sizes, and colors, it's lit AF. 
+
+Why should we let the fashion world dictate what's considered beautiful when we can create our own standards? Let's show the world that beauty comes in all forms, not just the ones we see in traditional magazines. Whether you're into street style, high fashion, or anything in between, this challenge is a powerful reminder that representation matters. So grab your phone, get creative, and join the #VogueChallenge to make a statement that will have the fashion industry shook. Let's slay, queens! 💅🏽🔥 #RepresentationMatters #InclusiveFashion #VogueChallenge
