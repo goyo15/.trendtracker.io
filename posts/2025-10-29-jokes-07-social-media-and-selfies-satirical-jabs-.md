@@ -1,0 +1,5 @@
+# Social Media and Selfies: Satirical jabs at selfie culture, hashtag trends, and comical social media posts. — 2025-10-29
+
+What’s up, fellow netizens? Let’s talk about the selfie epidemic taking over our screens! 📸 From duck faces to peace signs, the selfie game is strong. But seriously, do we really need 100 pics of your avocado toast with #brunchgoals? 🥑 And let’s not forget those hashtag trends - #OOTD, #SelfieSunday, #Blessed. Can we get a #SeriouslyStop? 😂 
+
+If you’re not posting a funny cat video or a makeup tutorial, are you even on social media? 🔥 Let’s lighten up the feed with some comical posts, because who needs perfection when you can have a good laugh? Remember, it’s not all about the likes and followers – it’s about keeping it real and having fun in the digital world! So, grab your phone, strike a pose, and let’s keep the satire alive in selfie land! #StaySnappy 💁‍♀️🔥
