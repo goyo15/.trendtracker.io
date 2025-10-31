@@ -1,0 +1,3 @@
+# Rumors of a student transferring schools due to a conflict with a teacher — 2025-10-31
+
+Hey fam, can you believe the latest gossip at school? Apparently, word on the street is that Sarah is transferring schools because she had a major clash with our beloved Ms. Thompson. Drama much? 🙄 But here’s the tea - it’s not just any ordinary feud. Rumor has it that Sarah stood up to Ms. Thompson during class, calling her out on playing favorites and being all around shady. Respect for Sarah speaking her truth, though let’s be real, that takes guts! Will we miss the drama queen or the shady teacher more? Only time will tell. Stay tuned for the next episode of “Schoolhouse Showdown”! 🍵✨ #RumorMill #SlaySarah #DramaAlert
