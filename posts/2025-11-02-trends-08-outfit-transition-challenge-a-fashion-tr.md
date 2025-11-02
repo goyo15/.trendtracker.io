@@ -1,0 +1,5 @@
+# "Outfit Transition Challenge" - A fashion trend where users transition outfits by throwing a shoe at the camera to the song "Hollywood" by LAUREL. — 2025-11-02
+
+Hey fashionistas, it’s time to up your style game with the hottest trend of the season - the “Outfit Transition Challenge”! Transform your look with a simple flick of the wrist as you throw your shoe at the camera to the groovy beats of “Hollywood” by LAUREL. This challenge is all about creativity and sass, so don’t hold back!
+
+Whether you’re rocking streetwear or glam vibes, this trend is perfect for showcasing your personality and killer fashion sense. So grab your favorite pair of shoes and get ready to slay that outfit transition like a boss. Remember, it’s all about having fun and expressing yourself through fashion. Are you up for the challenge? Let’s see how you can strut your stuff in style! #OutfitTransitionChallenge #FashionForward

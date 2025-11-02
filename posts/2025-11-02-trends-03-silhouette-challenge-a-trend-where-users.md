@@ -1,0 +1,5 @@
+# "Silhouette Challenge" - A trend where users pose in front of a red filter to create a silhouette effect, often accompanied by the song "Put Your Head on My Shoulder" by Paul Anka. — 2025-11-02
+
+Hey fam, let’s talk about the latest viral trend - the Silhouette Challenge! 🌟 This trend is all about striking a pose in front of a red filter, creating a super cool silhouette effect. And let me tell you, it’s giving off major mysterious vibes that are totally Instagram-worthy. Plus, the cherry on top is the retro track "Put Your Head on My Shoulder" by Paul Anka playing in the background. 🎶
+
+It’s like stepping into a 90s music video, and I’m here for it! Whether you’re showcasing your dance moves, flaunting your best outfits, or simply grooving to the music, the Silhouette Challenge offers a fun way to get creative and share some seriously aesthetic content. So, grab that red light, strike a pose, and let’s light up our feeds with some silhouette magic! Are you up for the challenge? ✨ #SilhouetteChallenge #TrendAlert #90sVibes
