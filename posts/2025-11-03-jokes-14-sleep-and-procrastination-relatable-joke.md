@@ -1,0 +1,5 @@
+# Sleep and Procrastination - Relatable jokes about staying up late, oversleeping, and procrastination habits strike a chord with teens. — 2025-11-03
+
+Hey fam! Let's talk about the ultimate struggle that unites all of us sleep-loving, procrastination-prone teens - staying up late and then regretting it the next morning. 🌙😴 We’ve all been there, scrolling through TikTok at 2 am knowing darn well we have an 8 am class the next day. And don’t even get me started on setting five alarms only to snooze through all of them! 💤 
+
+But hey, at least we can laugh about it, right? Like, “I’ll do that assignment after a quick nap” turns into a four-hour slumber. Or when you tell yourself, “I’ll start studying after this episode” and suddenly it’s midnight. 📚😅 Procrastination is just a way of life for us, and honestly, we wouldn’t have it any other way. So here’s to our late-night shenanigans and morning struggles - may we all find the perfect balance between sleep and procrastination (spoiler: we probably won’t, but it’s all good). Stay iconic, my fellow night owls! ✨ #SleepDeprivedButStylish
