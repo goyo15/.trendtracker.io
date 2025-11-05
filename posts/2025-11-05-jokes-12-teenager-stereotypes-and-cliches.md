@@ -1,0 +1,5 @@
+# Teenager stereotypes and cliches — 2025-11-05
+
+Yo, let’s talk about the tired old stereotypes and cliches that people love to slap on teenagers like they’re one-size-fits-all labels. Newsflash, the days of teens being angsty rebels with no chill are long gone. We’re a diverse bunch with unique passions, goals, and personalities. Not all of us are glued to our phones or ditching class to cause trouble. Some of us are crushing it in academics, sports, or activism. Can we ditch the “lazy, entitled” narrative already?
+
+And don’t even get me started on the whole “teenagers always in their feelings” shtick. Emotions are valid, hello! We’re navigating a rollercoaster of changes and challenges, so cut us some slack. Plus, we’re out here breaking boundaries, raising our voices, and making a difference. So next time you wanna throw around a stereotype, just remember, we’re more than that - we’re the future, and we’re coming for it. Stay woke, pals. #TeenPower

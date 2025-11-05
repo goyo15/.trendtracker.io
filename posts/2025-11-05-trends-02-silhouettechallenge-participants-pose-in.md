@@ -1,0 +1,5 @@
+# #SilhouetteChallenge - Participants pose in front of a door before transforming into a silhouette set to the song "Put Your Head on My Shoulder" by Paul Anka, often highlighted by a red light filter to accentuate their outlines. — 2025-11-05
+
+Hey, fam! Let’s talk about the latest trend taking over the interwebs - the #SilhouetteChallenge! 🌟 Participants are striking poses in front of doors, turning into sultry silhouettes set to the smooth vibes of "Put Your Head on My Shoulder." 🔥 And let’s be real, that red light filter is adding all the drama and mystery we need.
+
+But here’s the tea ☕️: this challenge isn’t just about looking fierce or flexing those editing skills. It’s about embracing our bodies, feeling confident, and celebrating our unique beauty in a fun and creative way. So grab your door, cue the music, and show off your silhouette with style! And remember, you don’t need perfect lighting or professional equipment to slay this challenge - just have fun and let your inner glow shine bright! #SilhouetteChallenge #BodyPositivity 💃🚪✨

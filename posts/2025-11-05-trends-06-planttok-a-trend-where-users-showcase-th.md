@@ -1,0 +1,7 @@
+# #PlantTok - A trend where users showcase their indoor plant collections, offer care tips, and engage in plant-related DIY projects, reflecting the growing interest in houseplants and sustainable living among young people. — 2025-11-05
+
+Hey plant parents and green thumbs alike, have you checked out the latest trend taking over TikTok? That’s right, it’s #PlantTok! With young users showcasing their impressive indoor plant collections, sharing care tips, and diving into plant-related DIY projects, it’s clear that the love for houseplants is in full bloom among Gen Z.
+
+Not only does #PlantTok add some fresh, green vibes to our feeds, but it also reflects our generation's commitment to sustainability and bringing a little piece of nature into our urban spaces. From repurposing everyday items as plant pots to making homemade fertilizers, the creativity and passion for plants on display are truly inspiring.
+
+So, whether you’re a seasoned plant parent or just dipping your toes into the world of indoor gardening, join the #PlantTok community and let’s grow together – both our plant collections and our sustainable living practices! 🌿🌿🌿 #GoGreenOrGoHome #PlantParenting

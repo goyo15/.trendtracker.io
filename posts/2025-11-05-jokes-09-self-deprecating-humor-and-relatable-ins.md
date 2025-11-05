@@ -1,0 +1,5 @@
+# Self-deprecating humor and relatable insecurities — 2025-11-05
+
+Hey fellow teens! Let’s talk about self-deprecating humor and those relatable insecurities we all deal with. We’ve all been there, making jokes about our own flaws to lighten the mood or fit in with our friends. But here’s the thing – constantly putting yourself down can start to affect how you see yourself. It’s like a vicious cycle of self-doubt masked as humor. 
+
+It’s important to remember that it’s okay to have insecurities, we all do! Instead of using self-deprecating humor as a coping mechanism, let’s try to show ourselves some love and appreciation. Let’s laugh at our mistakes without tearing ourselves down in the process. Embrace your quirks, own your imperfections, and remember that you are worthy just as you are. So next time you feel like making that self-deprecating joke, pause and give yourself a little self-love instead. You deserve it! 💖 #SelfLove #YouAreEnough
