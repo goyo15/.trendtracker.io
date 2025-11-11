@@ -1,0 +1,5 @@
+# Korean skincare routines and beauty hacks — 2025-11-11
+
+Hey fam! Let’s talk about Korean skincare routines and beauty hacks – because who doesn’t want that flawless K-beauty glow, am I right? Korean skincare is all about layers, hydration, and getting that glass skin look. Start with double cleansing – oil cleanser to melt away makeup and a foaming cleanser to deep clean. Then, layer on toner, essence, serum, and moisturizer like a K-beauty pro. And don’t forget the sunscreen – always! 
+
+Now, onto the beauty hacks – have you tried sheet masking while gaming or studying? Multitasking at its finest, people! Also, check out the 7-skin method for mega hydration – just apply toner 7 times in a row. And let’s not forget about facial massage with a jade roller or gua sha tool for that extra glow up. Remember, skincare is self-care, so treat yourself and your skin right! Stay fierce, stay glowy! 💁‍♀️✨🌟 #Kbeauty #SkincareRoutine #GlowUp
