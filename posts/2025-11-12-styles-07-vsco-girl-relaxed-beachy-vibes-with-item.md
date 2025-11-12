@@ -1,0 +1,5 @@
+# VSCO Girl - Relaxed, beachy vibes with items like oversized t-shirts, scrunchies, and Birkenstock sandals. — 2025-11-12
+
+Hey fam, let's chat about the VSCO girl trend that's taking over our social feeds faster than you can say "sksksk" and "and I oop-". These girls are all about those laid-back, beachy vibes that make you wish you were sippin' a coconut drink on a tropical island. Oversized t-shirts? Check. Scrunchies for days? Double check. And let's not forget the iconic Birkenstock sandals that are basically the unofficial shoe of the VSCO girl tribe.
+
+But it's not just about the clothes and accessories, it's a whole lifestyle. Hydro flasks, metal straws, and caring about the environment are all part of the VSCO girl package. So next time you see someone rocking the VSCO look, give 'em a nod of approval because they're all about spreading good vibes and positive energy. Stay cool, stay VSCO! #SaveTheTurtles 💚🌊🐢✨
