@@ -1,0 +1,5 @@
+# Gen Z yellow (bright, eye-catching yellow hues) — 2025-11-13
+
+Hey, LIT fam! Let's talk about the hottest color trend taking over our feeds - Gen Z yellow! 💛🌟 This bold, eye-catching hue is all about spreading those good vibes and making a statement. Whether you're rocking a sunny yellow top, bright accessories, or even painting your room in this cheerful shade, Gen Z yellow is giving us all the energy we need. It's like a burst of sunshine in our wardrobes and lives! 🌞✨
+
+This color isn't just about looking fierce, it's also about embracing positivity and confidence. So go ahead, add some Gen Z yellow to your style and let your personality shine bright like a diamond! And remember, in a world full of basic colors, be a pop of Gen Z yellow! Keep slaying, fam! 💁‍♀️💅 #GenZYellow #BrightLikeSunshine

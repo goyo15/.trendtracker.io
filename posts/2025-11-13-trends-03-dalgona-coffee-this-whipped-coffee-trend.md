@@ -1,0 +1,5 @@
+# Dalgona Coffee - This whipped coffee trend went viral on TikTok, with users sharing their own unique creations and variations of the delicious drink. — 2025-11-13
+
+Hey peeps! 🌟 Let’s spill the tea on Dalgona coffee – the latest craze that’s taking over TikTok like a storm! ☕️ If you’ve been living under a rock and haven’t heard of it yet, Dalgona coffee is a whipped coffee concoction that’s as boujee as it gets. With just a few simple ingredients – coffee, sugar, and water – you can whip up a frothy, Instagram-worthy drink that’ll make you feel like a coffee connoisseur. 
+
+But here’s the real tea – it’s all about the variations and creativity! From adding caramel drizzle to dusting with cocoa powder or even trying it with matcha, the possibilities are endless. TikTok users are getting super creative with their unique Dalgona coffee creations and sharing all the deets. So, if you’re looking to up your coffee game and show off your barista skills, jump on the bandwagon and give Dalgona coffee a whirl. Your taste buds will thank you! 💁‍♀️✨ #DalgonaCoffeeGoals
