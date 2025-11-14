@@ -1,0 +1,5 @@
+# Dalgona Coffee Challenge — 2025-11-14
+
+Hey all you trendy caffeine enthusiasts! Let’s talk about the latest craze taking over our social media feeds - the Dalgona Coffee Challenge! This whipped coffee concoction has officially become the beverage of choice for all the cool kids. Not only does it look super aesthetically pleasing with its layers of creamy foam on top of iced milk, but it also tastes like a dream. 
+
+Sure, perfecting that fluffy whipped texture can be a bit of a challenge, but trust me, the end result is well worth it. Plus, it’s a fun way to get creative in the kitchen and spice up your morning routine. Whether you’re a coffee addict or just looking for a fun new hobby to try out during quarantine, the Dalgona Coffee Challenge is definitely worth a shot (pun intended). So grab your whisk, whip up a batch of this Insta-worthy beverage, and join the Dalgona Coffee hype train! 🌟☕️ #DalgonaCoffeeChallenge #WhippedCoffeeWinning

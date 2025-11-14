@@ -1,0 +1,5 @@
+# #SavageChallenge — 2025-11-14
+
+Hey fam! 💁🏻‍♀️ Did you check out the latest #SavageChallenge taking over TikTok and Instagram? 🤳🏼 This dance challenge is straight fire 🔥, and everyone’s bringing their A-game to bust out some killer moves to Megan Thee Stallion’s track “Savage”. 💃🏻 Whether you’re a dance pro or just looking to have some fun, this challenge is a total vibe! 😎
+
+The best part? You can customize your own choreography and add your unique flair to slay the dance floor. 💯 So grab your crew, crank up the music, and show off your inner savage! 🙌🏼 Don’t forget to tag your squad and spread those good vibes. Let’s keep the energy high and the dance moves fierce! 💥 Are you up for the #SavageChallenge? Let’s see those sick moves and unleash your inner savage! 💪🏼✨ #SavageChallenge #DanceGoals #FierceMoves
