@@ -1,0 +1,5 @@
+# Pandemic-related jokes and quarantine humor — 2025-11-16
+
+Hey there, fellow quaranteens! Let’s talk pandemic humor – we’ve all been there, right? I mean, what else are we gonna do in lockdown besides scroll through endless memes and TikToks cracking jokes about our newfound obsession with sweatpants and Zoom calls? Personally, I’ve developed a solid appreciation for quarantine puns and COVID-themed jokes. They’re like the ultimate inside joke shared by the entire world. 
+
+Whether it’s making light of our chaotic WFH situations or creating memes about the real MVPs (yes, we mean you, essential workers!), humor has been our saving grace during these crazy times. It’s a way to cope, bond, and find moments of levity in the madness. So, keep the pandemic jokes coming, my friends. Laughter truly is the best medicine, and we could all use a hefty dose right about now. Stay safe, keep smiling, and remember – we’re all in this together, six feet apart. ✌️ #QuarantineHumor #PandemicJokes

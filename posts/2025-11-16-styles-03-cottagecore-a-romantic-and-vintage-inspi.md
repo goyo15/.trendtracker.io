@@ -1,0 +1,5 @@
+# Cottagecore - a romantic and vintage-inspired look featuring prairie dresses, straw hats, and floral patterns — 2025-11-16
+
+Hey there, fellow fashionistas! Let’s talk about Cottagecore - the dreamy trend taking over our feeds faster than you can say “strawberry picking”. Picture yourself in a flowy prairie dress, topped off with a cute straw hat and donning delicate floral patterns. That’s the Cottagecore aesthetic in a nutshell - a perfect blend of romantic and vintage vibes that’ll have you feeling like you stepped straight out of a fairytale.
+
+Whether you’re lounging in a meadow or baking homemade goodies in your cozy kitchen, Cottagecore is all about embracing a simpler, more whimsical way of life. So, if you’re into soft pastels, dainty prints, and a touch of nostalgia, this trend is calling your name. Channel your inner cottage queen and let your wardrobe bloom with ethereal charm. Because let’s face it, who wouldn’t want to frolic through a field of wildflowers looking effortlessly chic? Cottagecore is a vibe, and it’s here to stay. Embrace the romance, my friends! 🌸✨ #CottagecoreLife #FashionFairyLoves
