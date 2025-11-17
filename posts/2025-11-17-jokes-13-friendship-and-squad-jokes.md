@@ -1,0 +1,5 @@
+# Friendship and squad jokes — 2025-11-17
+
+Hey squad fam! Let’s talk about friendship and those epic inside jokes that only our crew gets. You know what I’m talking about - those hilarious moments that have us laughing so hard, we can’t breathe. It’s like our own secret language that bonds us together and makes every hangout session lit. Whether it’s the time we tripped over nothing or the inside jokes that make no sense to anyone else, those moments are what make our squad so special.
+
+Friends who joke together, stay together, am I right? It’s those silly moments that strengthen our bond and create memories we’ll never forget. So next time you’re with your squad, keep those jokes coming, keep those laughs coming, and keep those memories piling up. Because at the end of the day, it’s those moments of pure, unfiltered joy that make our friendships unbreakable. Stay goofy, stay close, and most importantly, stay true to your squad. Peace out, squad fam!

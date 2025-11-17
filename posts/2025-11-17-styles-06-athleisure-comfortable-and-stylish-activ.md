@@ -1,0 +1,5 @@
+# Athleisure - comfortable and stylish activewear worn both for workouts and everyday casual outfits. — 2025-11-17
+
+Hey fam, let’s talk about athleisure! 🏃‍♀️💁‍♂️ Who doesn’t love rocking comfy workout gear all day, every day? Athleisure is the ultimate fashion flex - from the gym to the streets, we’ve got you covered. It’s like saying, “Yeah, I work out, but I also stay on trend 24/7” effortlessly. Who wouldn’t want to be comfy AND stylish at the same time? 
+
+Whether you’re hitting the gym, going for a coffee run, or just hanging out with friends, athleisure is the vibe. Leggings, hoodies, sneakers - the options are endless! Plus, it’s so versatile, you can easily transition from a HIIT session to a chill hangout without skipping a beat. So, next time you’re wondering what to wear, remember: athleisure is the answer. Keep it cool, keep it comfy, and slay all day, every day. 💪🔥 #athleisurelife

@@ -1,0 +1,5 @@
+# "Ratatouille: The TikTok Musical" - A crowd-sourced musical based on the Disney movie "Ratatouille". — 2025-11-17
+
+Hey fellow foodie friends! 🍽️ Did you hear about the latest TikTok sensation that’s taking Broadway by storm? Yep, it’s “Ratatouille: The TikTok Musical” and it’s a show worth drooling over! 🎶🐀 This crowd-sourced musical based on the classic Disney movie has got all the ingredients for a viral hit. From catchy tunes to hilarious lyrics, this musical is serving up some serious entertainment for all ages.
+
+I mean, who knew a story about a cooking rat could be so captivating, am I right? 🐭🍅 And with talented TikTok creators coming together to make this show a reality, it’s a true testament to the power of creativity and collaboration in the digital age. So grab a virtual front-row seat, tap your toes to the music, and join the fun – this musical is sure to leave you hungry for more! 🎭🎬 #RatatouilleTheMusical #TikTokTunes #BroadwayMagic

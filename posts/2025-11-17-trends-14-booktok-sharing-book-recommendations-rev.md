@@ -1,0 +1,5 @@
+# "BookTok" - Sharing book recommendations, reviews, and creating community book clubs on TikTok. — 2025-11-17
+
+Hey fam, let's talk about the latest lit trend taking over TikTok - BookTok! 📚📱 This platform isn't just for dances and lip-syncs anymore. Book lovers are using TikTok to share their fave reads, write book reviews, and even start community book clubs. It's like a virtual library, but with way more swag. 💁‍♀️📖 
+
+Not sure what to read next? Just scroll through BookTok and you're bound to find some epic recommendations that will have you hooked from page one. Plus, it's a dope way to connect with other bookaholics and geek out over fictional worlds together. So, if you're tired of the same old content on your For You Page, give BookTok a try and dive into a new literary adventure. Who knows, you might just discover your new favorite book and make some rad new friends along the way. Keep calm and read on, squad! 📚✨ #BookTok #BookishVibes #LitLife

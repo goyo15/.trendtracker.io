@@ -1,0 +1,5 @@
+# Cottagecore - a whimsical and romantic style featuring flowy dresses, floral prints, and crochet or lace details. — 2025-11-17
+
+Hey fam! Let’s talk about Cottagecore, the dreamy aesthetic that’s got us all feeling like we’re living our best fairy-tale life! Picture this: flowy dresses, floral prints that make you feel like you're frolicking through a meadow, and delicate crochet or lace details that add the perfect touch of charm. It’s all about embracing nature, cozy vibes, and vintage feels.
+
+Whether you’re into picnics, gardening, or just lounging around reading your fave book, Cottagecore is the perfect style to make you feel like you’re in your own enchanting story. So ditch the drama and embrace the whimsical side of life with ruffles, ribbons, and all things cottage-y. It’s time to bring a little magic and romance into our everyday lives, one flowy dress at a time! 🌿🌸✨ #CottagecoreVibes #FairyTaleLife

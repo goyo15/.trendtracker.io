@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-11-17
+
+Hey fam, let’s talk about self-deprecating humor – you know, those jokes we make about ourselves to get a laugh out of others. It can be fun and relatable, but where do we draw the line? Sure, making light of our flaws can build connections and show we don’t take ourselves too seriously, but constantly putting ourselves down ain’t cool. Let’s remember we’re all dope in our own ways, flaws and all.
+
+I get it, life can be a hot mess sometimes, and self-deprecating jokes are like a coping mechanism. But let’s not let it become our default vibe. It’s all about balance, fam. Embrace your quirks and imperfections – that’s what makes you unique and hella cool. So, next time you’re tempted to crack a self-deprecating joke, think twice. Own your greatness and spread those positive vibes instead. Stay sassy, stay classy. Peace out ✌️.
