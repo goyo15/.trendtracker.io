@@ -1,0 +1,5 @@
+# Pop culture references (movies, TV shows, music) — 2025-11-18
+
+Hey, fam! Let's spill the tea ☕ on pop culture references – they're basically the spice of life! I mean, who doesn't love a good movie quote or a catchy lyric to hype up your day? It's like our generation's secret language that brings us all together. From classic flicks like Mean Girls to the hottest bops on the charts, pop culture is where it's at!
+
+Whether you're binge-watching your fave TV show or jamming out to the latest hit on repeat, these references are like little nuggets of joy that make life a million times more fun. They add flavor to our conversations, memes, and even our Instagram captions! So next time you drop a “That's what she said” or belt out “I'm a survivor, I'm not gonna give up,” remember that you're not just quoting – you're connecting with the whole squad. Stay iconic, stay relevant, and keep those pop culture vibes alive! 🌟🎬🎶 #StayWokeToPopCulture

@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-11-18
+
+Hey, fam! Let’s talk about self-deprecating humor - you know, when we throw shade on ourselves for a quick laugh. It’s like our go-to move when we’re feeling awkward or trying to fit in. But here’s the tea – while a little self-roasting can be hilarious, too much can be a major buzzkill. It’s all fun and games until we start believing our own jokes, am I right?
+
+So, let’s keep it real and keep it light. Embrace your flaws and quirks, but also remember you’re a boss babe with mad skills and beauty for days. Don’t let self-deprecation become your default setting - own your awesomeness! Because at the end of the day, self-love is the vibe we should be chasing. So, sprinkle in some self-deprecating humor, but never forget your worth, hun. Keep slaying! 💁🏼‍♀️✨ #ConfidenceIsKey #LoveYourself #SlayingIt

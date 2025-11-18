@@ -1,0 +1,5 @@
+# Animal print and faux fur — 2025-11-18
+
+Hey wild ones! 🐾 Let’s talk about the purr-fect combo that’s been taking over the fashion scene - animal print and faux fur! 🖤🦁 Whether you’re channeling your inner fierce feline with a leopard print coat or slaying in a cozy faux fur jacket, this trend is all about bringing out your inner beast and embracing your untamed style. It’s bold, it’s fun, and it’s definitely not for the faint of heart! 🐆✨ 
+
+Rock a zebra print mini skirt with some chunky combat boots for a look that screams edgy chic, or throw on a faux fur vest over a graphic tee for a touch of glam. The best part? You can totally mix and match different animal prints for a look that’s uniquely you! So go ahead, strut your stuff in some safari-inspired fashion and unleash your fierce fashionista vibes. Stay wild, babes! 🌿💋 #RoarFashionista #AnimalPrintLove
