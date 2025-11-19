@@ -1,0 +1,5 @@
+# Dalgona coffee - The viral whipped coffee trend that gained popularity during the COVID-19 lockdown continues to be a hit among TikTok users. — 2025-11-19
+
+Hey all you cool cats and quarantine kittens! Let’s talk about Dalgona coffee, the whipped-beverage sensation that’s taking the world by storm. I mean, who knew a simple mix of instant coffee, sugar, and hot water could create such an Insta-worthy drink? TikTok users are all over this trend, showing off their barista skills and making us all crave that frothy goodness. 
+
+While we’re stuck at home during this COVID-19 lockdown, Dalgona coffee is the perfect way to add some fun and flavor to our daily routine. Plus, it’s a great excuse to show off our kitchen skills on social media. So, if you haven’t tried it yet, what are you waiting for? Get whipping, get sipping, and join the Dalgona coffee craze! But be warned, once you try it, you’ll be addicted to its creamy deliciousness. Cheers to staying caffeinated and trendy during these crazy times! ✌️☕ #DalgonaCoffeeDreams

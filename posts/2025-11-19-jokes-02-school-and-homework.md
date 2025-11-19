@@ -1,0 +1,5 @@
+# School and homework — 2025-11-19
+
+Ugh, school and homework - the dynamic duo we all love to hate. 📚 It’s like they're in cahoots to suck the joy out of life, am I right? But hey, we gotta play the game even if we're not loving the rules. Whether we’re crushing on cute classmates or dreaming of the weekend, school and homework will always be lurking in the background like a bad case of FOMO.
+
+But let’s face it, we’re low-key warriors slaying those assignments and acing those tests. Sure, we might procrastinate more than we should (Netflix, I’m looking at you), but we always manage to pull through in the end. So here’s to late night cram sessions, caffeine-fueled study sessions, and the satisfaction of crossing off tasks on our to-do lists. School and homework may be our frenemies, but hey, we can’t deny the satisfaction of conquering them like the bosses we are. 💪 #SchoolLife #HomeworkHustle

@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-11-19
+
+Hey fam! Let’s talk about self-deprecating humor – you know, the kind that’s all about poking fun at ourselves to get a laugh. It’s like the ultimate coping mechanism for us teens dealing with the chaos of life. But here’s the tea: while a little self-roasting can be hilarious, too much of it can be like sabotaging ourselves with our own words. 
+
+I mean, it’s totally cool to laugh at our quirks and mishaps, but when it starts affecting our self-esteem and how we see ourselves, that’s when we need to hit pause. So, fam, let’s find the balance between cracking jokes and showing ourselves some love. Remember, we’re all a work in progress, and it’s okay to embrace our flaws while still shining bright like the stars we are. Stay funny, stay fabulous! #SelfLoveSquad 💁‍♀️✨💪
