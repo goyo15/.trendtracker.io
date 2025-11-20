@@ -1,0 +1,5 @@
+# Pop culture and celebrity jokes — 2025-11-20
+
+Hey, fam! Let's spill the tea ☕️ on pop culture and celebrity jokes. We've all been there - scrolling through TikTok or Twitter, cracking up at the latest meme about Kim K or Taylor Swift. It's like a daily dose of spice that keeps us on our toes. These jokes aren't just for laughs, though. They're like a shared language that connects us, no matter where we are in the world.
+
+But, let's keep it real - there's a fine line between poking fun and going too far. Remember, celebrities are real people with feelings too. So, let's spread those jokes with love and not hate. At the end of the day, we're all just living our best lives, trying to navigate this crazy world of pop culture together. Stay sassy, stay classy, and keep those jokes coming! 💁‍♀️✨ #PopCulture #Jokes #CelebSass

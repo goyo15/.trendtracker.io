@@ -1,0 +1,5 @@
+# #Cottagecore - A trend focusing on cozy rural aesthetics and crafts, appealing to Gen Z's interest in nature and nostalgia. — 2025-11-20
+
+Hey fellow trendsetters! Let’s talk about the hottest trend taking over our feeds - #Cottagecore! 🌿🏡 This aesthetic is all about embracing the simple life and getting in touch with nature. From flowy dresses to homemade jams, Cottagecore is all about those cozy, rural vibes that just scream Pinterest-perfect. And can we talk about the crafting opportunities? DIY floral arrangements, knitting, you name it! 
+
+It’s like stepping into a fairytale land filled with flower meadows and charming cottages - who wouldn’t want to escape there for a while? Plus, with Gen Z’s love for sustainability and slow living, Cottagecore fits perfectly into our values. So get ready to embrace your inner country-side enthusiast, because Cottagecore is here to stay! 🌻✨ #CottagecoreGoals #NatureVibes

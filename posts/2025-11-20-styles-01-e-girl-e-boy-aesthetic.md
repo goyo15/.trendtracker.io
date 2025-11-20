@@ -1,0 +1,5 @@
+# E-girl/E-boy aesthetic — 2025-11-20
+
+Hey, fellow trend-chasers! Let’s talk about the E-girl/E-boy aesthetic that’s been blowing up our feeds lately. 🌟 From their edgy makeup to their colorful hair and grungy outfits, E-girls and E-boys are all about expressing themselves unapologetically. It’s like they took everything cool from the '90s and gave it a modern twist. Think oversized graphic tees, platform shoes, chains, and of course, the iconic E-girl heart under the eyes. 💔 
+
+What I love most about this aesthetic is how it’s all about embracing your individuality and breaking free from traditional fashion norms. It’s a rebellious blend of goth, skater, and anime vibes that just screams confidence. So, if you’re feeling adventurous and ready to push the fashion boundaries, why not give the E-girl/E-boy look a try? Let your creativity shine and slay those selfies like the fierce trendsetter you are! 💅 #EgirlEboyVibes #FashionRebel
