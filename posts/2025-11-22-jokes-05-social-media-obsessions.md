@@ -1,0 +1,5 @@
+# Social Media Obsessions — 2025-11-22
+
+Hey fam, let’s talk about social media obsessions – you know, that endless scrolling, double-tapping, and lurking that we can all totally relate to. It’s easy to get sucked in, constantly checking for likes, comments, and new content. But have you ever noticed how it can mess with your mental health? Comparison is the thief of joy, and seeing everyone’s perfectly curated lives can make you feel like yours doesn’t measure up. Remember, what people post is just a highlight reel, not the full story.
+
+Let’s take a breather from the digital world sometimes, go for a walk, read a book, or hang with friends IRL. It’s all about finding that balance, staying present, and not letting a number of followers define your worth. So, next time you find yourself mindlessly scrolling, put down the phone and give yourself some real-life love and attention. You’re worth more than all the likes in the world! 💫 #RealLifeIsBetter #DisconnectToReconnect
