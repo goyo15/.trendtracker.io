@@ -1,0 +1,5 @@
+# #FlipTheSwitch challenge — 2025-11-24
+
+Hey, fam! Have you seen this new viral trend taking over TikTok? It’s called the #FlipTheSwitch challenge and it’s lit! Here's the scoop: two people start off in front of a mirror dancing to Drake's "Nonstop," then when the beat drops, they switch outfits by flipping the light switch off and on. Sounds simple, right? Well, it's hilarious watching the transformations and the unexpected outfit swaps!
+
+Whether you’re trying it with your bestie or your crush, the #FlipTheSwitch challenge is sure to bring some LOLs to your feed. So, grab your outfits, practice those dance moves, and get ready to see some seriously funny results. Trust me, this trend is a vibe you don’t want to miss out on. Can’t wait to see all of you flipping the switch and bringing those good vibes to the dance floor! Peace out! ✌️ #TikTokTrends #ViralChallenges
