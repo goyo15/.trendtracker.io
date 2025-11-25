@@ -1,0 +1,5 @@
+# Cottagecore aesthetic - Embracing a simple and cozy lifestyle, the cottagecore trend includes fashion, decor, and activities with a nostalgic rural vibe. — 2025-11-25
+
+Hey there, fellow trendsetters! Let's talk about the *cottagecore aesthetic* that's taking the internet by storm. Imagine picnics in flower-filled meadows, baking fresh bread in a quaint kitchen, and embracing a cozy lifestyle straight out of a fairy tale. From flowy dresses to vintage decor, cottagecore is all about channeling that nostalgic rural vibe and living your best cottage life dream. 
+
+Whether you're into cottagecore fashion, decorating your space with dried flowers and vintage finds, or spending your afternoons gardening and foraging, this trend is all about reclaiming a simpler way of living. So, grab your wicker basket, put on your favorite floral dress, and let's immerse ourselves in the charm of cottagecore. It's time to slow down, appreciate the little things, and embrace the magic of a cozy, rustic lifestyle! 🌿🌼 #CottagecoreVibes #SimpleLiving
