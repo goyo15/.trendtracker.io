@@ -1,0 +1,5 @@
+# Thrifting and Sustainable Fashion: Gen Z on TikTok is embracing thrifting and sustainable fashion practices, sharing haul videos, upcycling tips, and sustainable fashion brands. The trend reflects a shift towards conscious consumerism and eco-friendly choices. — 2025-11-26
+
+Hey there, fashion-savvy pals! 🌿♻️ Are you ready to hop on the thrifting and sustainable fashion train with Gen Z on TikTok? Let's get real, fast fashion is so yesterday. We're all about embracing pre-loved finds and making eco-friendly choices that won't break the bank. From killer thrift haul videos to DIY upcycling tips and shining a spotlight on sustainable fashion brands, Gen Z is leading the charge towards a more conscious, planet-loving future.
+
+So, grab your reusable tote bags and let's hit up those thrift stores to score unique pieces that scream your style! Let's break free from the fast fashion cycle and show the world that you can slay while being environmentally mindful. It's time to strut our stuff in outfits that not only look bomb but also make a positive impact. Let's do this, fam! 💚✨ #SustainableSlay #ThriftQueen

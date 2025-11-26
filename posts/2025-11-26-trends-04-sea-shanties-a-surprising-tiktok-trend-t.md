@@ -1,0 +1,5 @@
+# Sea Shanties: A surprising TikTok trend that revived traditional sea shanties, with users creating duets and harmonies to popular sea shanty songs. The trend gained traction on the app and even made its way to mainstream media. — 2025-11-26
+
+Hey fellow sailors and landlubbers! 🌊⚓️ Have you heard about the latest TikTok trend that’s making waves and splicing the mainbrace all at once? That’s right, I’m talking about sea shanties! You heard me, those catchy old-school sailor tunes are back and better than ever thanks to TikTok. Nailing those harmonies and joining in duets with users from all over the world has never been so fun. And guess what? This trend isn’t just floating around on the app – it’s become a full-on mainstream sensation.
+
+Who would’ve thought that traditional sea shanties could become the soundtrack to 2021? It just goes to show that music truly knows no bounds. So grab your virtual crewmates, belt out those sea shanties, and let’s keep this trend sailing towards new horizons. Fair winds and following seas, mates! 🌊🎶 #SeaShantyTikTok #SailorVibes #HarmonyHauling🌊⛵️🌟

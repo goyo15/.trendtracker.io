@@ -1,0 +1,5 @@
+# Dalgona Coffee Trend: Originating on TikTok, the Dalgona coffee trend involves whipping instant coffee, sugar, and hot water to create a frothy coffee foam that is then served over milk. The trend went viral during the early stages of the COVID-19 pandemic and continues to be popular among coffee enthusiasts. — 2025-11-26
+
+Hey there, fellow trendsetters! Let's spill the tea about the Dalgona coffee trend that's been taking over our screens. Originating on TikTok, this trend is all about whipping up some serious coffee magic. Picture this: instant coffee, sugar, and hot water getting a workout until they transform into a dreamy, cloud-like foam that sits pretty on a bed of milk. It's like a caffeinated masterpiece!
+
+I mean, who knew that a simple coffee recipe could cause such a stir during the craziness of the pandemic? But hey, we teens are always up for trying new things, especially when it involves our beloved coffee fix. So, if you haven't given Dalgona coffee a go yet, what are you waiting for? Whip it up, snap a pic for the Gram, and let's keep riding this caffeinated wave together. Stay trendy, stay frothy! ✨☕ #DalgonaDreams
