@@ -1,0 +1,5 @@
+# High school prom drama involving a popular student — 2025-11-27
+
+Okay, let’s spill the tea on the latest high school prom drama, y’all! So, get this - the super popular student, let’s call her Queen Bee for now, was all set to make a grand entrance at prom with her entourage. But guess what? Drama ensued when her supposed BFF showed up in the same stunning dress as her! Can you even imagine the chaos that went down at the entrance?
+
+Queen Bee was livid, to say the least. Rumors are flying around that there’s major beef between the two now. Like, seriously, who knew a dress could cause so much drama? All I can say is, brace yourselves for some epic clashes in the hallways next week. Prom might be over, but the aftermath is just getting started! Stay tuned for more high school madness, because let’s be real, high school drama never disappoints.

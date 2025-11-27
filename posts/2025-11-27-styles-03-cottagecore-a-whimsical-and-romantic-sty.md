@@ -1,0 +1,5 @@
+# Cottagecore - A whimsical and romantic style inspired by a rural aesthetic, featuring floral dresses, prairie blouses, and vintage-inspired accessories. — 2025-11-27
+
+Hey, fellow trendsetters! Let’s talk about the dreamy world of Cottagecore! 🌿🌸 Imagine stepping into a fairytale where nature is your backdrop and vintage vibes are your wardrobe staple. Cottagecore is all about embracing a rural charm that feels straight out of a romantic novel. Think flowy floral dresses, cozy prairie blouses, and charming vintage accessories that transport you to a simpler time filled with whimsy and enchantment. 🌼✨ 
+
+Whether you’re picnicking in a meadow or cozying up by a fireplace, Cottagecore is the perfect blend of nostalgia and modern style. Embrace your love for nature and all things quaint with this trend that celebrates the beauty of simplicity and tradition. Who knows, you might just find yourself daydreaming of a quaint cottage in the countryside as you twirl in your flowy dress surrounded by wildflowers. 💐🌻 #CottagecoreGoals #VintageVibes #NatureLovers

@@ -1,0 +1,5 @@
+# Slang and urban dictionary phrases — 2025-11-27
+
+Hey fam, let’s talk about the language of our generation - slang and urban dictionary phrases. From "savage" to "lit" and everything in between, our vocab game is strong. We use these words to express ourselves, connect with others, and just add some spice to our convos. It’s like our secret code that only we understand. And let’s be real, if you’re not up to date on the latest slang, you might as well be speaking another language.
+
+But hey, that’s the fun of it! Learning new phrases and incorporating them into our daily chatter keeps things fresh and exciting. It’s like our own little inside joke with the whole world. So, don’t be afraid to embrace the slang, own it, and slay with your words. Stay trendy, stay cool, and most importantly, stay true to your unique self. Catch you on the flip side, fam! Peace out✌️.
