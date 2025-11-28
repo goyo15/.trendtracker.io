@@ -1,0 +1,5 @@
+# Social media and dating mishaps — 2025-11-28
+
+Hey fellow teens, let’s talk about the treacherous world of social media and dating mishaps. 🙅📱 Whether it’s accidentally liking your crush’s post from 2015 or getting caught stalking their profile at 3 am, we’ve all been there. And don’t even get me started on the drama that goes down in the group chat when someone screenshots a flirty DM gone wrong. 😬💔 
+
+But hey, let’s remember that social media is just a highlight reel of someone’s life, not the whole story. So if your crush hasn’t liked your latest selfie or left you on read, don’t stress. Real connections happen when you put down the phone and have a genuine conversation. And remember, it’s okay to make mistakes when it comes to dating – we’re all learning as we go. So let’s laugh off those embarrassing mishaps and keep swiping through life! 💁‍♀️💕 #DatingDrama #TeenLife #SwipeRight
