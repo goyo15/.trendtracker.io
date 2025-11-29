@@ -1,0 +1,5 @@
+# Dark Academia - Academic-inspired fashion with a focus on tweed blazers, oxford shoes, and vintage accessories. — 2025-11-29
+
+Hey, academia enthusiasts! Let's talk about the swoon-worthy trend that's taking the fashion world by storm - Dark Academia! Picture this: strolling through the campus in a classic tweed blazer, pairing it with chic oxford shoes, and adding the perfect touch with vintage accessories. We're talking about a fashion statement that screams sophistication and intelligence. 
+
+Whether you're studying in the library or sipping a latte at a quaint café, this aesthetic is all about embracing the scholarly vibes in style. Channel your inner bookworm with a cozy turtleneck, high-waisted trousers, and a beret for that added flair. Dark Academia isn't just a fashion trend, it's a lifestyle - one that celebrates intellectual curiosity and timeless elegance. So, grab your favorite literary classic, strike a pose in your trendy ensemble, and let's all indulge in the beauty of Dark Academia together! 📚🖤 #DarkAcademia #FashionForward
