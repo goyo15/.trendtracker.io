@@ -1,0 +1,5 @@
+# Grunge revival — 2025-12-01
+
+Hey, fam! Can we talk about the grunge revival that’s happening right now? I’m totally vibing with the return of ripped jeans, oversized flannels, and chunky boots. It’s like the 90s came back to give us a style upgrade 🤘🏼. Grunge music, messy hair, and a don’t-care attitude are making a comeback, and I am here for it. 
+
+Feeling nostalgic for the days of Nirvana and Courtney Love? Well, you’re in luck because the grunge renaissance is in full swing. Whether you’re rocking a vintage band tee or channeling your inner rock goddess with dark lipstick, this trend is all about embracing your inner rebel. So, grab your combat boots, throw on a plaid shirt, and let’s rock out like it’s 1992 all over again. Stay grungy, my dudes! #GrungeRevival #90sVibes 🖤.
