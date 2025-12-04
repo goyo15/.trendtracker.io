@@ -1,0 +1,5 @@
+# Educational content (explainers, tutorials) — 2025-12-04
+
+Hey fam, let’s talk about educational content! 💡 Whether it’s TikTok explainers or YouTube tutorials, we all love learning something new, am I right? 💁‍♀️ Dive into those quick 60-second explainers and boom – you’re suddenly an expert on quantum physics (or at least you sound like one)! 🚀 And don’t get me started on makeup tutorials – thank you, beauty influencers, for saving us from our makeup mishaps! 💄 
+
+But seriously, the amount of knowledge being shared online is insane! From coding tips to cooking hacks, there’s no limit to what you can learn. So next time you’re scrolling through your feed, why not switch it up and watch something that’ll actually stimulate that brain of yours? 💥 Who knows, you might discover your new passion or ace that tricky math problem you’ve been putting off. Keep learning, keep growing, and keep slaying, my friends! 🌟 #EducationIsKey #LifelongLearner #StayCurious

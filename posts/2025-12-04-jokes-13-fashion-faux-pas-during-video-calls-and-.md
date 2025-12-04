@@ -1,0 +1,5 @@
+# Fashion faux pas during video calls and virtual meetings — 2025-12-04
+
+Hey there, virtual fashionistas! Let’s talk about the ultimate style sins during video calls and virtual meetings. We all know the struggle of looking cute from the waist up and rockin’ those pajama bottoms, but some of us might be making some serious fashion faux pas without even realizing it. First up, the no-go of wearing a bold, distracting pattern that makes your classmates or coworkers dizzy just by looking at you. Keep it chic and simple, peeps!
+
+Next, let’s address the issue of lighting – avoid looking like you’re having a seance and get that glow right! Also, please spare us the horror of unkept hair and messy backgrounds. Remember, a messy room equals a messy mind (or something like that). So, let’s step up our virtual fashion game, avoid these faux pas, and keep slaying those video calls with style! Peace out. ✌️ #VirtualFashionPolice #SlayFromHome
