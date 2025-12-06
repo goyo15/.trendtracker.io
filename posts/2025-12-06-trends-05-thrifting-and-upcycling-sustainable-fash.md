@@ -1,0 +1,5 @@
+# Thrifting and upcycling - Sustainable fashion is a growing trend on TikTok, with users showcasing their thrift store finds and creative ways to upcycle old clothes into trendy outfits. — 2025-12-06
+
+Hey fashion-forward fam! 🌟 Let’s talk about thrifting and upcycling, the hottest trends hitting TikTok! 🛍️ Sustainable fashion is IN, and it’s all about finding unique treasures at thrift stores and giving old clothes new life with cool DIY hacks. I’m talking vintage vibes, funky prints, and one-of-a-kind pieces that scream style without hurting the planet. 🌿
+
+It’s like a fashion treasure hunt out there, with TikTokers showing off their killer thrift store hauls and sharing genius ways to upcycle and refashion old threads into fresh, trendy looks. From oversized blazers turned into cute crop tops to denim shorts transformed into sassy skirt sets, the creativity is next level! 🌈 So, let’s ditch fast fashion, embrace sustainability, and slay those thrifted outfits like the eco-friendly trendsetters we are! 💃 #SustainableFashion #ThriftedFinds #UpcycledStyle
