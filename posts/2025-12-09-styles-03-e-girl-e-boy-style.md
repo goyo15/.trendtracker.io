@@ -1,0 +1,5 @@
+# E-girl/E-boy Style — 2025-12-09
+
+Hey squad, let's talk about the latest trend taking over our screens – E-girl/E-boy style! With its edgy mix of retro, anime, and skater vibes, this aesthetic is all about standing out and being unapologetically yourself. Think oversized graphic tees, chain accessories, colorful hair, and signature winged eyeliner for girls, and baggy clothes, beanies, and colorful hair for guys. 
+
+But here's the best part – E-girl/E-boy style is totally gender-fluid, so anyone can rock this look and slay. It's all about expressing your individuality and embracing your inner confidence. And let's not forget the power of social media in shaping this trend – TikTok, Instagram, and YouTube have all played a huge role in making E-girls and E-boys go viral. So, if you're feeling a bit rebellious and ready to turn heads, why not give this trend a try? Remember, fashion is all about having fun and expressing yourself, so don't be afraid to experiment and make it your own. Stay fierce, fam! #EGirl #EBoy #FashionForward
