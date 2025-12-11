@@ -1,0 +1,5 @@
+# "MaskUp" challenge - An awareness campaign encouraging users to wear masks and follow COVID-19 safety protocols, spreading an important message. — 2025-12-11
+
+Hey there, fellow mask-wearing warriors! 🎭 Let’s talk about the "MaskUp" challenge that’s taking social media by storm. For all of us feeling the quarantine fatigue, it’s easy to slip up on safety measures. But, now more than ever, we need to stick together and keep each other safe. That’s where the "MaskUp" challenge comes in – reminding us to wear our masks consistently and follow COVID-19 guidelines. 
+
+Listen, I get it. Wearing a mask isn’t the most glamorous accessory, but it’s the hottest trend of 2020 (and 2021 too, probably). So, let’s make wearing our masks a statement of solidarity and responsibility. Let’s show the world that we care about protecting each other and ending this pandemic. Plus, who doesn’t love a good selfie with a cute mask on, am I right? So, join the "MaskUp" challenge, spread the message far and wide, and let’s crush COVID-19 together! Stay safe, stay stylish, and remember – masks are a must! 💪🏼🖤 #MaskUpChallenge 🌟
