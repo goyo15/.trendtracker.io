@@ -1,0 +1,5 @@
+# Slang and catchphrases — 2025-12-13
+
+Hey fam! Let’s talk about slang and catchphrases! 💁🏼‍♀️ We all know how important it is to stay current and on-trend with our vocab, am I right? From “sksksk” to “that’s tea, sis” – we’ve got a whole dictionary of phrases to keep us sounding fly. And let’s be real, using the right slang can totally elevate your cool factor. 😎
+
+But here’s the 411: it’s all about balance, babes. While it’s bomb to sprinkle in some slang to show you’re with it, dropping too much can make you sound like you’re trying too hard. Stay authentic, stay fresh, and most importantly, stay true to yourself. Use slang to spice up your convo, but don’t let it become your whole personality. Keep slaying, keep shining, and keep those catchphrases on lock, hun! 🔥 #SlangGoals #StayGnarly

@@ -1,0 +1,5 @@
+# "Buss It Challenge": A dance challenge where participants transition from casual to glamorous attire, accompanied by the song "Buss It" by Erica Banks. — 2025-12-13
+
+OMG, have you seen the latest viral trend taking over TikTok? It’s the "Buss It Challenge" and it is SO iconic! Picture this: rocking your comfiest loungewear one moment, then BAM, you drop down low and transform into a total glam queen in seconds. All while jamming out to the bop “Buss It” by Erica Banks. Can we say glow up goals? 🌟
+
+This challenge is all about confidence and embracing your glow-up journey. It’s like stepping into your own personal music video and owning every moment of it. Plus, the song is an absolute banger that will have you twerking in your room before you know it. So, grab your favorite outfit, crank up the volume, and let’s all join in on the fun! Who knows, you might just discover a whole new level of fierceness within yourself. Keep slaying, babes! 💃🔥 #BussItChallenge #GlowUpGoals
