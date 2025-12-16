@@ -1,0 +1,5 @@
+# Social media and selfies — 2025-12-16
+
+Hey fam, let’s talk about social media and the infamous selfies! 🤳🏼 We all know scrolling through Insta is basically a full-time job, and taking the perfect selfie is an art form. But let’s keep it real - don’t let those filters and presets fool ya! It’s okay to rock that no-makeup look or post a candid pic once in a while. Authenticity is key, my dudes. 🌟 
+
+Remember, social media is like a highlight reel - we only see the good stuff. Don’t get caught up in comparisons or seeking validation through likes. Your worth isn’t defined by the number of followers or double-taps you get. So snap that selfie, post it if you want, but never forget to love yourself beyond the screen. Stay real, stay fabulous, and keep slaying those selfie game! 💁🏻‍♀️✨ #SelfieQueen #SocialMediaRealTalk #StayAuthentic

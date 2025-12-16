@@ -1,0 +1,5 @@
+# Cottagecore and fairycore aesthetic — 2025-12-16
+
+Hey, fam! Let's get cozy and dive into the dreamy world of Cottagecore and Fairycore aesthetics! Picture this: frolicking through flower-filled meadows, sipping tea in a quaint cottage, and getting lost in a magical forest. Cottagecore is all about embracing rustic, simple living with a touch of whimsy, while Fairycore taps into our love for all things ethereal and enchanting. Think pastel colors, flowy dresses, floral prints, and lots of fairy lights. 🌸🧚‍♀️
+
+These aesthetics are all about celebrating nature, embracing your inner magic, and creating a serene escape from the hustle and bustle of everyday life. So, whether you're daydreaming in a flowy dress or spending time in a cozy nook with fairy lights twinkling above, Cottagecore and Fairycore are all about finding beauty in the little things and letting your imagination run wild. Embrace the magic, lovelies! 💫✨ #Cottagecore #Fairycore #StayMagical
