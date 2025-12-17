@@ -1,0 +1,5 @@
+# Online learning and school from home struggles — 2025-12-17
+
+Hey, fellow teens! Let’s talk about the struggles of online learning and school from home, because let’s be real, it’s been a rollercoaster. From dodgy wifi connections to the constant distractions of home life, trying to focus on schoolwork can feel like a mission impossible. And don’t even get me started on Zoom calls - the struggle to look presentable from the waist up while wearing pajama bottoms is real.
+
+But hey, we’re in this together! So let’s find ways to stay motivated, whether it’s creating a killer study playlist or setting up a designated workspace free from the chaos of our homes. Let’s remember to cut ourselves some slack and prioritize self-care during these crazy times. And most importantly, let’s keep pushing through, because we’re resilient and capable of overcoming any challenge that comes our way. Stay strong, stay positive, and remember, we got this! ✌️ #TeenBloggersUnite
