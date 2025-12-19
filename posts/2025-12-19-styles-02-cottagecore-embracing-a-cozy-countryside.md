@@ -1,0 +1,5 @@
+# Cottagecore - Embracing a cozy, countryside aesthetic with flowy dresses and vintage prints. — 2025-12-19
+
+Hey there, cozy queens and vintage vibes enthusiasts! 🌿✨ Let's talk all things cottagecore - the ultimate aesthetic for those of us who crave a little countryside charm in our lives. Picture flowy dresses, floral prints, and all the wicker decor your heart desires. Cottagecore is all about embracing the simplicity and beauty of rural life, even if you're stuck in the suburbs or city.
+
+Whether you're baking fresh bread, frolicking in a meadow, or simply sipping tea on your porch swing, cottagecore is all about finding joy in the little things. So grab your favorite floral dress, put on those vintage boots, and let's escape to a world of cozy comforts and wholesome vibes. Who needs a prairie when you have Pinterest-worthy cottagecore dreams to bring to life? Embrace the aesthetic, and let your inner fairy tale princess shine! 🌻💫 #CottagecoreLife #VintageVibes

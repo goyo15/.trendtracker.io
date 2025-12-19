@@ -1,0 +1,5 @@
+# Pop culture and celebrity gossip jokes — 2025-12-19
+
+Hey fam, let's spill the tea on pop culture and celebrity gossip jokes! 🍵💥 From roasting the latest Kim K wardrobe malfunction to meme-ing Justin Bieber's iconic hairstyle changes, these jokes are our daily dose of sass and shade. We live for the drama and hilarity of poking fun at our fave celebs, because let's be real, they put themselves out there for us to comment on!
+
+Whether it's poking fun at a celeb's failed relationship or their questionable fashion choices, these jokes add some spice to our otherwise mundane lives. And hey, if Jennifer Lawrence can laugh at herself tripping on the red carpet, then we're all in on the joke! So next time you're scrolling through Twitter and come across a savage meme about a celeb scandal, just remember to sip that tea and enjoy the show! ✨🔥 #CelebGossipJokes #PopCultureMemes #SpillTheTea
