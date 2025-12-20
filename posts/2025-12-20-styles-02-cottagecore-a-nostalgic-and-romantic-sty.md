@@ -1,0 +1,5 @@
+# Cottagecore: A nostalgic and romantic style inspired by rural living, nature, and simplicity. — 2025-12-20
+
+Hey, fam! Let's talk about Cottagecore, the ultimate aesthetic trend that's taking over the internet! 🌿🌾 It's all about bringing those cozy, rustic vibes into your life and embracing the simple pleasures of rural living. Picture flowy dresses, vintage furniture, fresh flowers, and lots of soft pastel colors - it's like stepping into a fairytale cottage in the countryside! 🏡✨
+
+Cottagecore is all about being in tune with nature and finding beauty in simplicity. Whether you're baking homemade pies, gardening, or just taking a peaceful stroll in the woods, this trend is all about embracing a slower pace of life and reconnecting with the natural world around us. So grab your basket, put on your favorite floral dress, and let's escape to our own little slice of cottagecore paradise! 🥧🌷 #CottagecoreVibes #NatureIsOurHappyPlace
