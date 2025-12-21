@@ -1,0 +1,5 @@
+# Dalgona coffee trend — 2025-12-21
+
+Hey, trendy teens! Let’s spill the tea on the latest caffeine craze – Dalgona coffee! If you haven’t tried this frothy goodness yet, where have you bean? This whipped coffee sensation took social media by storm and is all over our feeds. Just mix equal parts instant coffee, sugar, and hot water, whip it up until it’s fluffy, and pour over your choice of milk. Voilà – you’ve got yourself a fancy café-style drink at home!
+
+But let’s keep it real – is this just a fad or the real deal? Personally, I’m obsessed with the aesthetic appeal and the satisfying process of making it. It’s like a mini DIY project with a tasty reward at the end. So, if you want to up your at-home coffee game and flex on your followers, give Dalgona coffee a shot. Just remember, it’s not about the latte art, it’s about the taste – and this trend is worth sipping on! Cheers, caffeine lovers!
