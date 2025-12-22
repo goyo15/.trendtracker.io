@@ -1,0 +1,5 @@
+# TikTok and social media humor — 2025-12-22
+
+Hey squad, let's spill the tea about TikTok and social media humor! 📱😜 TikTok be popping with jokes, challenges, and memes that have us ROFL-ing 24/7. It's like a virtual comedy club you can carry in your pocket! From relatable skits to hilarious lip-syncing, TikTok creators keep us cackling non-stop. 💃🏼 And let's not forget about the memes - they're the spice that adds flavor to our online lives. 🌶️
+
+But here's the tea: sometimes the humor can be a bit much, ya know? It's all fun and games until someone crosses the line and we're left feeling like 😬. So, let's keep it real and spread good vibes only! Let's use our online platforms to lift each other up and spread positivity like confetti. 🎉 Remember, laughter is our favorite song, but let's make sure we're dancing to the right beat. Stay sassy, stay classy, and keep slaying the social media game! 😘 #LaughOutLoud #PositivityRules

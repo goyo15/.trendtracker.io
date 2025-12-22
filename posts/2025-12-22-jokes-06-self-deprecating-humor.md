@@ -1,0 +1,3 @@
+# Self-deprecating humor — 2025-12-22
+
+Hey fam, let’s talk about self-deprecating humor, because let’s face it, we all use it. It’s like the ultimate defense mechanism, right? I mean, who needs haters when you can roast yourself better than anyone else? But here’s the thing – while a little self-deprecation can be funny and relatable, too much of it can start messing with your self-esteem. You're a boss, so don’t let those jokes make you forget it. It’s cool to laugh at yourself once in a while, but remember to show yourself some love too. So next time you’re about to crack a self-deprecating joke, think twice and give yourself some credit. You’re a star and don’t you forget it. Stay sassy, peeps!✌🏼#selflove #beyourownboss #loveyourself

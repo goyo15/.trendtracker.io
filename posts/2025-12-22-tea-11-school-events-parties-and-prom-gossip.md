@@ -1,0 +1,5 @@
+# School events, parties, and prom gossip — 2025-12-22
+
+Hey, fam! 🎉 Let’s spill the tea on all the school events, parties, and prom gossip that’s been going down lately! 👀 From epic pep rallies to lit house parties, we’ve been living our best lives! 💃 And can we talk about that drama at prom? 🤯 Who showed up with who and who got caught sneaking in a flask? 😱 It was wild, y’all! 🥂 But hey, that’s what high school memories are made of, am I right? ✨
+
+And speaking of events, can we take a moment to appreciate our school’s spirit days? 🌈 Who knew dressing up as our favorite movie characters could be so much fun? 😂 Life at high school is seriously a rollercoaster of emotions, scandals, and unforgettable moments. So, keep slaying, keep gossiping, and keep turning up, because these years are flying by and we gotta make the most of them! 💥 Stay fabulous, babes! 💋 #HighSchoolLife #PromDrama #PartyTime 🎶

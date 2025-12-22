@@ -1,0 +1,5 @@
+# E-girl/E-boy: Known for bold makeup, colorful hair, and a mix of alternative and casual styles like oversized hoodies and platform shoes. — 2025-12-22
+
+Hey, cuties and cool kids! Let's talk about the iconic E-girls and E-boys taking over our feeds! 🌟 With their killer bold makeup, vibrant hair, and a mix of edgy and chill vibes, these trendsetters are slaying the fashion game. Oversized hoodies, platform shoes, and a touch of alternative flair - that's the E-girl/E-boy aesthetic that's got us all heart-eyed emoji. 💁‍♀️💅 
+
+From TikTok to Instagram, these style pioneers are all about standing out and expressing themselves fearlessly. They're not afraid to push boundaries and experiment with eye-catching looks that have us all double-tapping. So, if you're feeling like switching up your style game, take some inspo from these daring fashion icons and let your creativity shine! Embrace the bold colors, the statement makeup, and don't forget to rock those platform shoes like you own the runway. Stay fierce, stay fabulous! 💋 #Egirl #Eboy #StyleIcons
