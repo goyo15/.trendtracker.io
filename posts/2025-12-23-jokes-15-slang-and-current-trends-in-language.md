@@ -1,0 +1,4 @@
+# Slang and current trends in language — 2025-12-23
+
+Hey fam, let’s chat about slang and current language trends! 🌟 It’s like, totally lit how language is constantly evolving to reflect the lives we’re living, you know? From “yeet” to “slay” to “flex,” our vocab keeps getting more and more iconic. And don’t even get me started on TikTok trends – can we talk about how “sheesh” and “simp” have taken over our everyday convos? It’s pretty much savage how quick words blow up and become basic necessities in our chatter. 
+But hey, let’s not forget the OG’s – like “yas queen” and “sksksk.” They’ll always have a special place in our hearts. Just remember, language is our playground, so keep on slangin’ and keepin’ it real. Stay woke, stay fly, and stay slayin’ those words, my peeps. 💁‍♀️💅 #WordUp #SlangGoals
