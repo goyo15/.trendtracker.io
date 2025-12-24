@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2025-12-24
+
+Hey, fam! Let’s chat about self-deprecating humor – you know, when we roast ourselves for a quick laugh. It’s cool to keep it real and not take ourselves too seriously, but where do we draw the line? Jokes about our flaws can be funny, but constantly putting ourselves down can mess with our self-esteem. It’s all fun and games until those “harmless” jokes start affecting our self-worth.
+
+So, let’s sprinkle in some self-love with our humor! It’s rad to embrace our quirks and imperfections, but let’s also show ourselves some love. Next time you crack a self-deprecating joke, pair it with a compliment to balance it out. Remember, we rock just the way we are, flaws and all. Keep it real, keep it funny, but most importantly, keep it kind to yourself. Stay awesome, fam! 🌟✌️ #selflove #keepitreal #teenbloggers
