@@ -1,0 +1,5 @@
+# LGBTQ+ representation and activism — 2025-12-25
+
+Hey there, fam! Let’s talk about LGBTQ+ representation and activism - a super important topic that needs to get more airtime. 💥 Representation in the media is getting better, but we still have a long way to go. It’s awesome to see more queer characters on screen, but we need to make sure they’re not just token characters. We need authentic and diverse representation that reflects real life. 🌈
+
+And let’s not forget about activism - it’s crucial for driving change and pushing for equality. Whether it’s attending a protest, signing petitions, or simply educating yourself and others, every little action counts. We have a powerful voice, so let’s use it to create a world where everyone feels seen, heard, and loved for who they are. Stand up, speak out, and let’s keep fighting the good fight together! ✊ #LGBTQ+ #RepresentationMatters #ActivismIsCool

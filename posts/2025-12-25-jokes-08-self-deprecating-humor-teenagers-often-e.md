@@ -1,0 +1,5 @@
+# Self-Deprecating Humor: Teenagers often enjoy poking fun at themselves and their own quirks and insecurities. — 2025-12-25
+
+Hey fam, let’s talk about self-deprecating humor, the unofficial language of us Gen Z peeps. 🤣 Whether it’s making jokes about our awkward dance moves or our unhealthy obsession with Netflix, we love poking fun at ourselves. It’s like our superpower, turning our insecurities into LOL moments. Embracing our quirks not only lightens the mood but also shows we’re chill with our imperfections. Like, who needs a perfectionist facade, amirite?
+
+But, hey, there's a fine line between self-deprecating humor and straight-up self-hate, so let’s keep it real and not go overboard. It’s all about balance, babes! So next time you trip over your own feet or accidentally send a cringy text, just laugh it off. Own your quirks, embrace your uniqueness, and remember, life’s too short to take yourself too seriously. Stay sassy and keep those self-roasts coming! 🔥✌️ #SelfLove #LaughItOff
