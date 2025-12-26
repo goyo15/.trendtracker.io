@@ -1,0 +1,5 @@
+# Relationship and crush jokes — 2025-12-26
+
+Hey, fam! Let’s talk about relationship and crush jokes. We all know we can’t resist a good chuckle when it comes to poking fun at our ’ships and crushes. Whether it’s teasing our bestie about their latest crush or roasting ourselves for being single AF, relationship and crush jokes are a key ingredient in our daily dose of humor. They help us navigate the crazy world of love and lust with a healthy dose of laughter.
+
+But hey, let’s remember to keep it light and playful, okay? It’s all fun and games until someone catches feelings or gets hurt. So, next time you’re crafting that perfect meme or sending that hilarious text about your crush, just remember to spread the love and good vibes. After all, laughter is the best medicine for any love-related drama. Stay sassy, stay classy, and keep those jokes coming! Peace out, y’all! #RelationshipGoals #CrushinIt
