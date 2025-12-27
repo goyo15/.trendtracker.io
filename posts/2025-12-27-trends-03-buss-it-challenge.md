@@ -1,0 +1,5 @@
+# Buss It Challenge — 2025-12-27
+
+Hey, fellow trend-watchers! Let’s talk about the Buss It Challenge that’s been blowing up all over social media. If you haven’t seen it yet, where have you been? The challenge starts with someone looking casual and then dropping it low to the ground when Erica Banks’ song “Buss It” hits. And when I say drop it low, I mean all the way down to glam mode! It’s all about transitioning from chill to glam real quick, and the internet is loving it. 
+
+I’ve seen so many people taking on this challenge, and let me tell you, the confidence and style they bring when that beat drops is goals. This challenge is a fun way to show off your inner diva and remind everyone that you can be chill one minute and a total queen the next. So, if you haven’t tried it yet, what are you waiting for? Let’s all get that glam mode on and buss it together! #BussItChallenge 🔥💃✨
