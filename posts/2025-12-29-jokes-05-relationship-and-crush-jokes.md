@@ -1,0 +1,5 @@
+# Relationship and crush jokes — 2025-12-29
+
+Hey squad, let's talk relationship and crush jokes! Because let's be real, laughter is the best remedy for any awkward or cringeworthy moment that comes with crushing on someone or navigating the wild world of relationships. Like, who hasn't sent a risky text and then immediately regretted it, am I right? 😅 And let's not forget the classic "Are you a magician? Because whenever I look at you, everyone else disappears" line—smooth, but slightly cheesy. 
+
+But hey, these jokes and puns are all part of the fun! They make us laugh, lighten the mood, and show that we don't always have to take ourselves so seriously. So next time you're feeling the butterflies, embrace the humor, crack a joke, and remember that it's all just a part of the rollercoaster ride of crushes and relationships. Stay witty, stay funny, and most importantly, stay true to you! 💫 #CrushJokes #RelationshipHumor

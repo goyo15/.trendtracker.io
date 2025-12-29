@@ -1,0 +1,5 @@
+# Y2K fashion — 2025-12-29
+
+Hey, lovelies! Let’s rewind back to the turn of the century when Y2K fashion was all the rage. Think Matrix-inspired leather coats, metallic mini skirts, and bedazzled everything. We’re talking about the era of low-rise jeans and crop tops, where everyone wanted to channel their inner Britney Spears or Destiny’s Child. And let’s not forget the iconic butterfly clips and chunky sneakers that completed every outfit.
+
+But the best part? Y2K fashion is making a major comeback! Celebs like Bella Hadid and Dua Lipa are rocking the nostalgic looks on the red carpet, and online thrift stores are filled with all the vintage gems you could ever want. So, raid your mom’s closet or hit up your local thrift shop to score some killer Y2K pieces and add a little throwback flair to your wardrobe. Trust me, you’ll be serving looks that are so fierce, even Paris Hilton would be proud.
