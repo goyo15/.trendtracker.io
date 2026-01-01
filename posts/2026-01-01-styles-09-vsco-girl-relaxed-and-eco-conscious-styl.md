@@ -1,0 +1,5 @@
+# VSCO Girl - Relaxed and eco-conscious style with oversized t-shirts, scrunchies, Birkenstocks, and Hydro Flask. — 2026-01-01
+
+Hey, fam! Let’s chat about the VSCO Girl trend taking over the 'gram lately. 🌿📸 Rocking an eco-conscious vibe with oversized tees, scrunchies, Birkenstocks, and a Hydro Flask, these girls are all about chill vibes and saving the planet one reusable straw at a time. 😎🌍 With their laid-back style and effortlessly cool attitude, they’re basically the definition of #goals.
+
+Whether you’re hitting the beach or just chilling with your squad, the VSCO Girl look is all about being comfy, cute, and caring for Mother Earth. 🌺♻️ So grab your oversized tee, top it off with a scrunchie, slide into those Birks, and don’t forget your Hydro Flask filled with ice-cold water! Stay hydrated, stay stylish, and always remember: save the turtles! 🐢💚 #VscoGirlVibes #SustainableSlay

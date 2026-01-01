@@ -1,0 +1,5 @@
+# Cottagecore - Embracing a romantic, vintage-inspired look with flowy dresses, ruffled blouses, and floral patterns. — 2026-01-01
+
+Hey there, fellow trendsetters! Let’s talk Cottagecore! 🌸✨ This whimsical aesthetic is all about embracing a vintage-inspired look that’s straight out of a storybook. Picture yourself frolicking through a meadow in a flowy dress, surrounded by wildflowers and the serene beauty of nature. Cottagecore fashion is all about ruffled blouses, dreamy florals, and embracing your inner romantic spirit. 
+
+So, why not sprinkle a little Cottagecore charm into your wardrobe? It’s the perfect blend of cozy and chic, with a touch of nostalgia that’s totally in vogue. Whether you’re going for a picnic in the park or just chilling with friends, this style is as versatile as it is adorable. So, grab your favorite flowy dress, twirl in the sunshine, and let your inner free spirit shine through. It’s all about embracing the beauty of simplicity and finding magic in the little things. 🌿💫 #CottagecoreVibes
