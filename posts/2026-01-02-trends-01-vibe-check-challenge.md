@@ -1,0 +1,5 @@
+# "Vibe Check" challenge — 2026-01-02
+
+Yo, what’s up, fam! Have you heard about the latest craze taking over social media? It’s called the “Vibe Check” challenge and let me tell you, it’s lit 🔥. Basically, you go up to your friends, yell “Vibe check!” and then it’s game on. They have to show you their best vibe, their coolest dance move, or even their funniest joke. It’s all about spreading positive energy and having a good time. 
+
+Not gonna lie, the Vibe Check challenge is a hilarious way to connect with your crew and see who’s bringing the best energy. Plus, it’s a great excuse to show off your personality and let loose. So, next time you’re hanging with your squad, give ‘em a Vibe Check and see who comes out on top. Trust me, you won’t regret it. Keep vibin’ and stay true to yourself ✌️. #VibeCheckChallenge #PositiveVibesOnly

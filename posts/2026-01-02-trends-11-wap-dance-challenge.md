@@ -1,0 +1,5 @@
+# "WAP" dance challenge — 2026-01-02
+
+Hey party people! 💃🏼🎉 Let's talk about the latest dance craze sweeping the internet - the "WAP" dance challenge! 🔥 Whether you've got the moves or just love watching others shake it, this challenge is taking TikTok by storm. From jaw-dropping choreography to hilarious attempts, everyone's getting in on the fun.
+
+But hey, before you jump on the bandwagon, remember to keep it respectful and age-appropriate. Let's keep the vibes positive and the energy high! So grab your crew, turn up the volume, and show off your best "WAP" dance moves. Just remember, it's all about having fun and spreading good vibes. Let’s bring some joy and positivity into this crazy world, one dance step at a time. Are you ready to take on the challenge? Let's do this! 💥💫 #WAPDanceChallenge #GoodVibesOnly

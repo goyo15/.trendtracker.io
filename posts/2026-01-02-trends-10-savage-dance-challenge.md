@@ -1,0 +1,5 @@
+# "Savage" dance challenge — 2026-01-02
+
+Hey there, fellow teens! 🌟 Let’s talk about the latest trend taking over social media: the "Savage" dance challenge! 💃🎶 This catchy dance craze, set to the tune of Megan Thee Stallion’s hit song "Savage," is all about bringing out your inner fierce and sassy side. From intricate footwork to sassy hair flips, this challenge is guaranteed to get you moving and grooving in no time.
+
+Get your friends together, pick out your fiercest outfit, and hit that dance floor (or your living room) to show off your best moves. Don’t forget to film yourself and post it online using the hashtag #SavageChallenge to join the viral dance sensation. So, what are you waiting for? Let’s channel our inner "savage" and slay this dance challenge like the fierce queens and kings we are! 🔥💁‍♀️ #SavageChallengeAccepted #DanceTillYouDrop
