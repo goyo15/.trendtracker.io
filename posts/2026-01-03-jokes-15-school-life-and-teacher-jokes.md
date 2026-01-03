@@ -1,0 +1,5 @@
+# School life and teacher jokes — 2026-01-03
+
+Hey, fam! Let's spill the tea on school life and teacher jokes, shall we? 📚 Teachers always act like they're the smartest in the room, but we all know they can't even figure out how to open a PDF file half the time. 🤷‍♀️ And don't get me started on their cheesy jokes - "Why did the math book look sad? Because it had too many problems!" 😂 Like, seriously, who comes up with this stuff?
+
+But hey, we gotta give props to the teachers who actually make learning fun! Shoutout to those who let us listen to music during class or crack a smile at our sarcasm. You the real MVPs! 🌟 So next time your teacher's telling a lame joke or giving you a hard time, just remember, they're just trying to make school a little less boring. Keep slaying in the classroom, my peeps! 📝✨ #SchoolLife #TeacherJokes #SlayinInTheClassroom
