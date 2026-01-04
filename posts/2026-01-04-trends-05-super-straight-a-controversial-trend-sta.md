@@ -1,0 +1,5 @@
+# "Super Straight" - A controversial trend started by a TikTok user to describe individuals who are only attracted to cisgender partners of the opposite biological sex. — 2026-01-04
+
+Hey there, fellow teens! Let’s talk about the latest controversy stirring up the internet – “Super Straight”. In case you haven’t heard, it’s a new trend coined by a TikTok user claiming to exclusively like cisgender partners of the opposite biological sex. Some are applauding it as a valid preference, while others are calling it transphobic. But here’s the tea – personal preferences are totally fine, but let’s not use them as an excuse to marginalize others.
+
+Although everyone is entitled to their own dating preferences, it’s important to remember that attraction is diverse and fluid. People are more than just their gender identity or biological sex. So let’s keep the conversation open, respectful, and inclusive. At the end of the day, love is love, and it’s what’s on the inside that truly matters. Let’s support each other and spread positivity, not division. Stay woke, stay kind, and keep shining bright, fam! 💖✨#LoveIsLove #SpreadPositivity
