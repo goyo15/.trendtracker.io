@@ -1,0 +1,5 @@
+# Baked Feta Pasta trend — 2026-01-06
+
+Hey everyone, let’s talk about the latest viral food trend that’s taking over TikTok and Instagram - Baked Feta Pasta! 🧀🍅 If you haven’t seen this colorful and delicious dish yet, you’re seriously missing out. It’s a super simple recipe where you bake a block of feta cheese with cherry tomatoes, garlic, herbs, and olive oil until it’s all melty and gooey. Then, you mix it all together with cooked pasta for a creamy, tangy, and savory pasta dish that’s seriously drool-worthy.
+
+Why is it so popular? Because it’s the perfect combo of flavors and textures, plus it’s easy to make and perfect for cozy nights at home. Trust me, your taste buds will thank you! So, if you haven’t tried the Baked Feta Pasta trend yet, what are you waiting for? Get in the kitchen, whip up this dish, and let me know how much you love it! 🍝✨ #BakedFetaPasta #FoodTrends #YumYum
