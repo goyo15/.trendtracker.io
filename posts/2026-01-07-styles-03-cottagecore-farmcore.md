@@ -1,0 +1,5 @@
+# Cottagecore / Farmcore — 2026-01-07
+
+Hey fellow teens! Let’s talk about the cozy and charming world of Cottagecore/Farmcore. 🌿🌾 Whether you’re daydreaming about frolicking through flower fields or baking fresh bread in a quaint kitchen, this aesthetic is all about embracing nature and simplicity. Picture yourself in a cottage surrounded by wildflowers, vintage décor, and maybe a cute little goat or two! 🌻🐐 It’s all about appreciating the beauty of the countryside and the joys of a slower-paced life.
+
+Want to dip your toes into the Cottagecore/Farmcore lifestyle? Start by incorporating floral prints, straw hats, and rustic touches into your wardrobe and living space. Take a break from the hustle and bustle of the city and embrace the peaceful vibes of nature. So, grab your wicker basket and head out for a picnic or start a mini herb garden on your windowsill. Let’s escape to a world of whimsy and simplicity with Cottagecore/Farmcore vibes! 🌼✨ #CottagecoreGoals #FarmcoreLife
