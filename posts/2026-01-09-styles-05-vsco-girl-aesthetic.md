@@ -1,0 +1,5 @@
+# VSCO Girl Aesthetic — 2026-01-09
+
+Hey VSCO girls, are you ready to dive into the ultimate aesthetic trend of the moment? That’s right, it’s all about that effortless, beachy vibe and saving the turtles one Hydro Flask at a time. From rocking those scrunchies and oversized t-shirts to always having your reusable straw handy, living the VSCO girl aesthetic is all about simplicity and eco-friendly vibes. 
+
+Not sure where to start? Grab your favorite puka shell necklace, layer on some friendship bracelets, and don’t forget your Birkenstocks. And of course, no VSCO girl look is complete without a messy bun and a camera ready to capture all those candid moments. Remember, it’s all about embracing your natural beauty and caring for the planet. So spread those positive vibes, share your love for scrunchies, and let’s all ride the wave of the VSCO girl aesthetic together. #SaveTheTurtles 🐢🌊 #VSCOgirlAesthetic
