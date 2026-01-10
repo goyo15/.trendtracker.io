@@ -1,0 +1,5 @@
+# Normcore: Focuses on simplicity and comfort with basic garments and neutral tones for an understated yet fashionable look. — 2026-01-10
+
+Hey trendsetters! Let's talk about normcore, the ultimate style hack for those who want to look effortlessly cool without breaking a sweat. Think everyday basics like plain tees, mom jeans, and sneakers paired with neutral tones for a low-key yet fashion-forward vibe. It's all about embracing simplicity and comfort while still making a statement. 
+
+Forget the flashy logos and bold prints, normcore is all about understated confidence and timeless pieces that never go out of style. Who knew dressing down could look so chic? So, slip into those comfy sneakers, throw on a simple white tee, and rock those relaxed-fit jeans like the fashion icon you are. Normcore is the cool-girl look we all need in our lives – because sometimes less really is more. Stay stylish, stay comfy, and always keep it simple. ✨ #normcore #fashiongoals #effortlesschic
