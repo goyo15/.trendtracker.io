@@ -1,0 +1,5 @@
+# #SilhouetteChallenge - Users pose in silhouette against a red background to showcase their silhouette while the song "Put Your Head on My Shoulder" by Paul Anka plays in the background. — 2026-01-12
+
+Hey fam, have you seen the latest trend taking over TikTok and Instagram? It’s the #SilhouetteChallenge and let me tell you, it’s lit! Picture this: users striking poses in silhouette against a red background, looking all mysterious and 🔥 while "Put Your Head on My Shoulder" by Paul Anka sets the mood in the background. It’s all about embracing your silhouette and feeling confident in your own skin.
+
+From dance moves to killer poses, everyone is bringing their A-game to this challenge. It’s like stepping into your own music video, feeling fierce and fabulous. So grab your red light, get your silhouette game on point, and show the world what you’re made of! Whether you’re voguing, twerking, or just striking a pose, this challenge is all about self-expression and having fun. So, let’s join in and slay that silhouette, cuz we’re all about confidence and empowerment here! 💃🕺 #SilhouetteChallenge #SelfLove
