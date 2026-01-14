@@ -1,0 +1,5 @@
+# Mental health awareness and self-care routines — 2026-01-14
+
+Hey fellow teens, let’s talk about something super important today: mental health awareness and self-care routines. 💆‍♀️ Taking care of your mental health is just as crucial as taking care of your physical health. It’s okay not to be okay sometimes, and that’s where self-care comes in. Whether it’s taking a walk in nature, journaling your thoughts, or chatting with a friend, finding what works for you is key.
+
+Don’t be afraid to talk about your feelings or seek help if you need it. We’re all in this together, and there’s no shame in getting support. Remember, self-care isn’t selfish—it’s necessary. So, make sure to prioritize your mental well-being and incorporate self-care into your daily routine. Your mental health matters, and you deserve to feel happy and healthy. Let’s break the stigma and start prioritizing our mental well-being, one self-care practice at a time. Take care, lovelies! 💖🌟 #mentalhealthawareness #selfcare #loveyourself
