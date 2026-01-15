@@ -1,0 +1,5 @@
+# "Silhouette Challenge" - A trending TikTok challenge where users pose in front of a red filter and transition to a silhouette, often set to the song "Put Your Head on My Shoulder". — 2026-01-15
+
+Hey, fam! Have y'all seen the latest TikTok sensation taking the internet by storm? That's right, I'm talking about the "Silhouette Challenge"! 🌟 This trend is lit AF, where users be looking fine posing in front of a red filter and then transforming into stunning silhouettes, all set to the vibes of "Put Your Head on My Shoulder." 🎶 It's like stepping straight out of a music video or a dreamy movie scene, and let me tell you, it's hella addictive to watch! 💃🏽✨
+
+But real talk, can we just appreciate the creativity and confidence of all the legends out there taking on this challenge? Major props to them for owning their glow-up moments and slaying those transitions like pros. So if you're vibing with the Silhouette Challenge, go ahead and join the wave because you never know, your silhouette might just steal the show! Until next time, stay iconic, stay groovy! Peace out! 🌌✌🏼 #SilhouetteChallenge #TikTokTrends #GlowUpGoals

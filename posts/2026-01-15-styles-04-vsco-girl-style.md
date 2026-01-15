@@ -1,0 +1,5 @@
+# VSCO girl style — 2026-01-15
+
+Hey, VSCO girls, is your Hydro Flask always filled with iced coffee and are you constantly saying "and I oop-"? Then you're already rocking the VSCO girl style! From scrunchies and oversized t-shirts to Birkenstocks and Pura Vida bracelets, there's no denying the iconic beachy-chic look. And let's not forget the ultimate accessory – the reusable metal straw. Save the turtles, am I right?
+
+But being a VSCO girl isn't just about the fashion – it's a lifestyle. It's about spreading positive vibes, being environmentally conscious, and embracing your natural beauty. So keep snapping those cute beach sunset pics, rocking those easy breezy outfits, and always remember to stay true to yourself. And if anyone tries to hate on your VSCO girl aesthetic, just tell them to sksksk and save the drama for your Mama Earth. Stay salty, stay cute, and keep on being your unapologetically VSCO self! 💛🌿🌊 #VSCOgirlLife

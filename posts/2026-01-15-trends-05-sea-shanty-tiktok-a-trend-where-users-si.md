@@ -1,0 +1,5 @@
+# "Sea Shanty TikTok" - A trend where users sing traditional sea shanties together, led by the viral sensation "The Wellerman" by Nathan Evans. — 2026-01-15
+
+Hey, fam! 🌊⚓ Have you heard about the latest TikTok trend blowing up our feeds? It’s all about sea shanties, and lemme tell ya, it’s making waves! 🌊🎤 From belting out "The Wellerman" to harmonizing on "Drunken Sailor," this trend is taking us straight to the high seas in the best way possible. Who knew traditional sailor tunes could be so catchy, right? ⛵️🎶
+
+It’s like we’re all part of a virtual crew, joining in on the fun and feeling that sense of unity through music. And let’s be real, who doesn’t love a good sea shanty to lift our spirits and transport us to a different time and place? So grab your phone, hit record, and let’s all sing together like a modern-day sea-faring squad. Who knows, maybe we’ll all become TikTok pirates of the digital age! 🏴‍☠️⚔️ Let’s keep this shanty train rolling, fam! Ahoy! ⚓️✨ #SeaShantyTikTok

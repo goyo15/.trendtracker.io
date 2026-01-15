@@ -1,0 +1,5 @@
+# "Buss It Challenge" - A dance challenge where participants transform from casual attire to glamorous outfits, inspired by the song "Buss It" by Erica Banks. — 2026-01-15
+
+Hey pals, let's talk about the latest viral craze that's taking over our feeds - the "Buss It Challenge". This dance challenge is all about showcasing your transformation game! From lounging in your pajamas to slaying in a glitzy outfit, all set to the catchy beats of Erica Banks' song "Buss It". It's all about that glow-up, and let me tell you, it's addictively fun to watch. 
+
+I mean, who doesn't love a good before-and-after moment? Whether you're dancing in your room or filming a full-on production, this challenge is all about embracing your inner diva and feeling yourself. So, grab your most fabulous outfit, crank up the volume, and let those self-confidence vibes flow! Who knows, maybe this challenge will inspire you to step out of your comfort zone and rock a bold look in real life. Get out there and "Buss It" in style, because you deserve to shine, babes! 💃🔥 #BussItChallenge
