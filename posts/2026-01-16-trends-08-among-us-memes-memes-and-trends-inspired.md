@@ -1,0 +1,6 @@
+# Among Us Memes - Memes and trends inspired by the popular online game Among Us, including imitating character movements and creating fan art. — 2026-01-16
+
+Hey there, crewmates and imposters! Let's talk about the internet sensation that’s taking over our feeds faster than you can say “sus” - Among Us memes! From hilarious memes capturing the chaos of emergency meetings to spot-on imitations of crewmate movements, this game has sparked a meme revolution like never before. 
+
+Whether you prefer to channel your inner imposter or stick with your crewmates, there's no escaping the creativity and humor that Among Us memes bring to the table. Fan art showcases the colorful characters in all their glory, inspiring artists to showcase their talents in unique ways. 
+So, grab your emergency meeting button and get ready to laugh your way through the galaxy of Among Us memes - because let's be real, we all know we're just one "impostor was not the impostor" away from a meme-worthy moment! Stay sus, stay trendy, and keep those memes coming! 😉✨🚀 #AmongUsMemes #CrewmatesUnite
