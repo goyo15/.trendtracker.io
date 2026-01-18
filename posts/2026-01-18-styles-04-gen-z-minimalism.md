@@ -1,0 +1,5 @@
+# Gen Z minimalism — 2026-01-18
+
+Hey fellow teens, let’s talk about Gen Z minimalism – the art of living simply in a chaotic world. Minimalism isn’t just about decluttering your physical space, it’s a whole vibe. It’s about prioritizing what truly brings you joy and ditching the excess noise. From toning down our social media feeds to rocking a capsule wardrobe, we’re all about quality over quantity.
+
+We’re embracing the idea that less is more, whether it’s in our decor, our schedules, or our attitudes. Gen Z minimalism is all about mindful consumption and intentional living – a way to rebel against the consumerism that’s been pushed on us since birth. So, let’s simplify our lives, declutter our minds, and focus on what really matters. It’s time to live with purpose and style, one minimalist step at a time. Who’s with me? #GenZMinimalism ✌️🌿🌟

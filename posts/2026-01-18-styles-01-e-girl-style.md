@@ -1,0 +1,5 @@
+# E-girl style — 2026-01-18
+
+Hey all you trendsetters out there! Let’s talk E-girl style - the ultimate blend of edgy, girly, and internet culture. It’s all about rocking the colorful hair, graphic tees, and statement accessories while level-ing up your makeup game with bold eyeliner and cute blush placements. E-girls are all about expressing themselves through fashion and showing off their unique personalities. 
+
+Whether you’re into the TikTok famous e-girl look or prefer adding your own twist, this trend is all about embracing individuality and breaking free from beauty standards. So throw on your oversized hoodie, slap on some butterfly clips, and become the e-girl you've always wanted to be. Remember, the key to this style is owning it with confidence and sass. Stay quirky, stay bold, and keep slaying, my fellow e-girls! 💖✨ #EgirlVibes #ExpressYourself
