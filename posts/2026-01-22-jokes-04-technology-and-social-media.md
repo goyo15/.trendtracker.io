@@ -1,0 +1,3 @@
+# Technology and Social Media — 2026-01-22
+
+Hey squad, let’s talk tech and social media! 📱💻 We all know our screens are glued to our faces 24/7, but let's keep it real - technology is a game-changer! It connects us with friends, helps us stay updated on the latest tea, and gives us a platform to express ourselves. But like, can we all agree that social media sometimes has us feeling FOMO and lowkey addicted? 😬 It’s important to find that balance between screen time and living our best IRL lives. Remember, likes and followers don’t define our worth! So, let’s use tech for good - spread positivity, support our peeps, and be kind online. Our digital footprint is forever, so let’s make it a vibe worth remembering! 🌟 #TechTalk #PositiveVibesOnly
