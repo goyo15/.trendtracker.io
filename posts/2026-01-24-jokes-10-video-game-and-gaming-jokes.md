@@ -1,0 +1,5 @@
+# Video game and gaming jokes — 2026-01-24
+
+Hey gamers and jokesters! Let’s talk about video game and gaming jokes that will make you hit pause from laughing so hard. From witty one-liners like “Why did the console go to school? To get better graphics!” to relatable jokes such as “I paused my game to be here. You’re welcome.”, there’s no short supply of gaming humor to keep you entertained. 
+
+Whether you’re a pro at Fortnite, a speedrunner in Mario Kart, or just enjoy a casual game of Animal Crossing, there’s a joke out there that will make you chuckle. Bonus points if you can make a pun about “respawning” after a bad day or “lagging” in real life situations. So, next time you're in need of a laugh during a gaming session, remember: it’s not cheating to have a good time with some video game jokes! Hit that like button if these jokes resparked your love for gaming humor. Keep calm and game on! 🎮✨ #GamingJokes #LaughOutLoud #GameOn
