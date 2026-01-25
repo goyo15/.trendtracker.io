@@ -1,0 +1,5 @@
+# TikTok challenges related to social issues or activism — 2026-01-25
+
+Hey fam, let’s talk about TikTok challenges with a purpose! 🌟💪 In a world filled with dance challenges and lip-sync battles, it’s refreshing to see a rise in TikTok challenges that tackle social issues and promote activism. From challenges raising awareness about mental health to advocating for climate change action, Gen Z is using this platform to spark meaningful conversations and drive positive change. 
+
+These challenges are not just about getting likes and views but about making a real impact. Whether it’s educating others about important issues or encouraging people to take action, participating in these challenges can be a powerful way to make your voice heard and show support for causes that matter. So next time you scroll through TikTok, keep an eye out for challenges that are making a difference – and don’t be afraid to join in and be a part of the movement! 🌎✊ #TikTokActivism #MakeADifference #GenZPower

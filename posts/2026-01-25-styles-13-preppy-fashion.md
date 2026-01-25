@@ -1,0 +1,5 @@
+# Preppy fashion — 2026-01-25
+
+Hey fashionistas! Let’s chat about preppy style – the OG of classy-cool vibes. Think collared shirts, plaid skirts, and boat shoes - yup, we’re talking about that effortlessly chic look that screams sophistication with a side of fun. It’s all about blending timeless pieces with a touch of modern flair, like layering a cute sweater over a crisp white button-up or pairing a pleated skirt with some trendy sneakers.
+
+Preppy fashion is like having your own personal dress code that never goes out of style. Whether you’re hitting the books or hitting the town, rocking preppy threads is a surefire way to stand out in a sea of fashion choices. So grab your pastels and pearls, and let’s show the world that being preppy doesn’t mean being predictable – it means being fabulously you! Stay stylish, stay preppy. 💁👗👑 #PrepForTheWin

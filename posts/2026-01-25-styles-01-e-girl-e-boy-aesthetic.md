@@ -1,0 +1,5 @@
+# E-girl/E-boy aesthetic — 2026-01-25
+
+Hey squad, let’s talk about the e-girl/-boy aesthetic that’s taking over the internet right now. 🖤 From the edgy makeup to the ’90s-inspired fashion, it’s all about blending grunge with a dash of cyberpunk vibes. 💻🖤 Whether you’re rocking fishnet tights or oversized graphic tees, the key is to express your unique style and attitude. And let’s not forget about the iconic e-girl makeup look – think bold eyeliner, colored eyeshadow, and maybe a hint of glitter. ✨🖤
+
+But here’s the real deal – the e-girl/-boy aesthetic is all about confidence and embracing your individuality. So, don’t be afraid to experiment with your style, mix and match different elements, and most importantly, stay true to yourself. It’s all about standing out and slaying your own path. Keep vibin’ and rockin’ that e-aesthetic, fam! 🤘🖤 #EgirlVibes #EboySwag
