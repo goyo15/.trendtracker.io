@@ -1,0 +1,5 @@
+# Cottagecore fashion - Inspired by rural aesthetics and the cottagecore lifestyle, with flowy dresses, floral prints, puff sleeves, and vintage accessories. — 2026-01-27
+
+Hey there, trendsetters! Let’s talk about the latest vibe taking over our feeds - Cottagecore fashion! 🌿🌸 Embracing all things whimsical and charming, this aesthetic is like a breath of fresh air in a world of fast fashion. Picture yourself wandering through a sun-drenched field in a flowy dress adorned with delicate floral prints, puff sleeves fluttering in the breeze - absolute dreaminess, am I right? 
+
+It’s all about channeling those cozy, countryside vibes and adding a touch of vintage flair with dainty accessories like lace-up boots, straw hats, and crochet handbags. 🌼 Whether you’re strolling through the park with friends or having a picnic date, Cottagecore fashion is the perfect blend of feminine romance and natural beauty. So, dust off those classic pieces, mix and match textures, and let your inner cottagecore queen shine through! 💫 #CottagecoreLife #FashionInspo
