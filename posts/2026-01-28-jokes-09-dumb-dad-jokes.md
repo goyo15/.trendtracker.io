@@ -1,0 +1,5 @@
+# Dumb Dad Jokes — 2026-01-28
+
+Hey there, fellow teens! Let’s talk about one thing that can make us all collectively roll our eyes - dumb dad jokes. You know the ones I’m talking about - the puns that are so cheesy they should come with a warning label. But hey, we can’t help but secretly love them, right? Because as much as we groan when our dads drop one of these cringe-worthy punchlines, there’s something oddly endearing about their corny sense of humor.
+
+Whether it’s a classic “Why did the scarecrow win an award? Because he was outstanding in his field” or a “I told my wife she should embrace her mistakes... she gave me a hug”, these dad jokes never fail to make us shake our heads and give a little chuckle. So cheers to all the dads out there, keep the cheesy jokes coming – we may pretend to hate them, but deep down, we know they’re a dad-tastic part of life.

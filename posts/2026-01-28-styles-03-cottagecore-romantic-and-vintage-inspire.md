@@ -1,0 +1,5 @@
+# Cottagecore - Romantic and vintage-inspired looks with floral prints, peasant blouses, and prairie dresses. — 2026-01-28
+
+Hey babes! Let's talk about Cottagecore - the ultimate mood for those of us who are all about those romantic and vintage vibes! 🌸🌿 Think flowy floral prints, cute peasant blouses, and dreamy prairie dresses straight out of a fairytale. It's all about channeling those cozy cottage feels and embracing your inner ethereal princess. 💫
+
+Whether you're picnicking in a meadow or just chilling at home, Cottagecore fashion is perfect for adding a touch of whimsy to your wardrobe. Embrace your love for all things nature-inspired and embrace your inner wildflower! 🌻 Don't be afraid to mix and match patterns, layer on those ruffles, and top it off with a flower crown for that fairytale finish. So if you're all about that dreamy, vintage-inspired aesthetic, Cottagecore is definitely the vibe for you! Stay cute, stay magical ✨💕 #CottagecoreDreams
