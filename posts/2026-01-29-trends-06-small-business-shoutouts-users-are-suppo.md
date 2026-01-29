@@ -1,0 +1,5 @@
+# "Small business shoutouts" - Users are supporting small businesses by promoting them on TikTok through shoutouts and reviews. — 2026-01-29
+
+Hey fam, let’s talk about the power of supporting small businesses through shoutouts on TikTok! It's super cool to see users hyping up their favorite small businesses through shoutouts and reviews. We all know small businesses have been hit hard lately, so giving them some love on social media can make a huge difference. Whether it's a local coffee shop, a handmade jewelry brand, or a mom-and-pop bookstore, every shoutout counts.
+
+So, instead of just scrolling past, why not take a minute to highlight a small business that you love? Show some support, spread the word, and help these amazing entrepreneurs thrive! Plus, when you share your genuine love for a small business, you might be helping out someone who's just starting their entrepreneurial journey. So let's keep the positive vibes going and show some love to our favorite small businesses on TikTok! 💪🛍️ #SmallBusinessShoutouts #SupportLocal

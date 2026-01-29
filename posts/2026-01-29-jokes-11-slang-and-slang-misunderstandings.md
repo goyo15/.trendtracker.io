@@ -1,0 +1,5 @@
+# Slang and slang misunderstandings — 2026-01-29
+
+Hey, fam! Let’s talk about slang and the misunderstandings that come with it. Slang is like our secret language that helps us connect and vibe with our peers, but sometimes it can lead to major confusion. Like, have you ever said “lowkey” meaning kinda, but someone thought you meant to keep something a secret? It happens, and it’s all part of the learning process. 
+
+It’s important to stay updated on the latest slang trends 'cause let's face it, no one wants to be called “old-fashioned” or worse, “outdated”. But at the same time, we gotta be patient and understanding with each other when slang leads to mix-ups. Communication is key, whether it’s decoding the latest lingo or clearing up a slang misunderstanding. So, keep slaying those slang terms but always be ready to explain and educate if needed. Stay cool, stay trendy, and keep those conversations lit! Peace out!✌️ #SlangNotSang #MisunderstandingsSuck

@@ -1,0 +1,5 @@
+# Relationship and crush jokes — 2026-01-29
+
+Hey there, squad! Let's talk about relationship and crush jokes, shall we? 🤣 We all know how much fun it is to tease our friends about their crushes or poke fun at our own relationships. Whether it's the classic "Do they even know you exist?" or the infamous "Are you two dating or just texting?" – these jokes never get old. It's all in good fun, right? 😜
+
+But hey, let's remember to keep it lighthearted and not let these jokes cross any boundaries. Crushes and relationships can be sensitive topics, and we should always respect others' feelings. So, next time you're cracking a joke about someone's love life, make sure it's all in good spirits. After all, laughter is the best medicine, especially when it comes to matters of the heart. Stay witty, stay cheeky, and keep those jokes rolling! 💖 #RelationshipJokes #CrushHumor
