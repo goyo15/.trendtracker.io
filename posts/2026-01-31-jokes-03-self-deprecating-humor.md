@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2026-01-31
+
+Hey fam, let’s talk about self-deprecating humor – you know, when you roast yourself before anyone else can. It can be hella funny, but also kinda tricky. On one hand, poking fun at yourself shows you don’t take life too seriously. On the flip side, too much self-deprecation can lower your self-esteem and have peeps thinking you’re fishing for compliments. Balance is key, my friends!
+
+Remember, you’re amazing just the way you are. It’s cool to have a laugh at yourself now and then, but don’t let it become your default mode. Confidence is key, and you deserve to shine without putting yourself down. So, next time you’re about to crack a self-deprecating joke, ask yourself: is this coming from a place of self-love or self-doubt? Keep it real, keep it positive, and keep slayin’! ✌️💖 #SelfLove #KeepItReal #StayPositive

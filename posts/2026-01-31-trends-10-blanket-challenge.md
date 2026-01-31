@@ -1,0 +1,5 @@
+# Blanket Challenge — 2026-01-31
+
+Hey fam, I’m coming at you with the latest craze in the teen world - the Blanket Challenge! 🌟 Picture this: you grab your coziest blanket, set a timer for 60 seconds, and transform into a living burrito by wrapping yourself up as fast as humanly possible. It’s like a race against time but with maximum comfort levels. Trust me, it’s addictively fun and totally hilarious to watch your friends try to master the art of blanket-wrapping. Plus, who doesn’t enjoy feeling like a snug little burrito for a hot minute?
+
+If you’re looking for a way to add some chill vibes and laughter to your day, the Blanket Challenge is where it’s at. So grab your fave blanket, gather your crew, and get ready to take on this epic challenge. Who will be crowned the Blanket Challenge champion in your squad? Get wrapping, my peeps! 🌯💫 #BlanketChallenge #CozyAndChill

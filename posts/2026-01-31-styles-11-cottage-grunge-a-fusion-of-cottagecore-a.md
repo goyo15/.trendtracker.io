@@ -1,0 +1,5 @@
+# Cottage Grunge - A fusion of cottagecore and grunge influences with a mix of delicate and edgy elements. — 2026-01-31
+
+Hey there, fellow trend-setters! Let’s talk about the latest style craze taking over our feeds: Cottage Grunge. Imagine the perfect blend of soft, flowy cottagecore vibes with a dash of rebellious grunge edge – that’s Cottage Grunge for you. Picture adorable floral prints paired with ripped fishnet stockings, or cozy oversized sweaters styled with combat boots. It’s all about mixing delicate and edgy elements to create a look that’s uniquely bold yet charmingly whimsical.
+
+With Cottage Grunge, you can embrace your inner soft-girl while still rocking that fierce attitude. Think vintage florals, distressed denim, layered jewelry, and a touch of dark eyeliner to tie it all together. It’s about being unapologetically yourself, embracing contrasts, and blurring the lines between sweet and sassy. So, get ready to spice up your wardrobe with this eclectic fusion – Cottage Grunge is here to stay, and it’s about to become your new obsession! 💫🖤 #CottageGrunge #FashionForward
