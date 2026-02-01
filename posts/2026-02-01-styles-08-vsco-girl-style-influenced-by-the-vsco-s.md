@@ -1,0 +1,5 @@
+# VSCO girl style: Influenced by the VSCO social media app, characterized by scrunchies, oversized t-shirts, Hydro Flask water bottles, and Birkenstock sandals. — 2026-02-01
+
+Hey, VSCO girls! Let's talk about the ultimate style trend taking over the internet – VSCO girl style. Inspired by the VSCO social media app, this look is all about effortless cool. With scrunchies to rock that high ponytail, oversized tees for maximum comfort, Hydro Flask water bottles to stay hydrated in style, and Birkenstock sandals for that laid-back vibe, it's basically the uniform of the carefree and eco-conscious teen. 
+
+This trend isn't just about what you wear, it's a lifestyle. Embracing natural beauty, staying environmentally conscious, and spreading positive vibes – that's the VSCO girl ethos. So grab your reusable straw, snap a pic for your VSCO feed, and show the world what it means to be a VSCO girl. Stay stylish, stay true to yourself, and don't forget to save the turtles! 🐢💖 #VSCOgirl #Sksksk #AndIOop #SaveTheTurtles
