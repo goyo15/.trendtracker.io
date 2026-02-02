@@ -1,0 +1,5 @@
+# Dalgona coffee - Whipped coffee trend that gained popularity during lockdowns. — 2026-02-02
+
+Hey fam! Let’s spill the tea about the Dalgona coffee craze that swept us off our feet during lockdown! ☕️🌟 If you haven’t tried it yet, you’re seriously missing out on the most aesthetically pleasing caffeine fix ever! This whipped coffee trend blew up on TikTok and Instagram, and suddenly all of us were our own baristas making frothy, velvety smooth coffee at home. ✨
+
+But let’s be real, it’s not all sunshine and rainbows - getting that perfect froth takes some serious arm muscle and patience! 💪 Plus, cleaning up all the spilled sugar and coffee grounds? A whole mess. 🙈 Nevertheless, the end result is totally worth it - a creamy, sweet caffeinated masterpiece that’s perfect for your daily Insta story flex! 📸 So next time you’re feeling a bit basic, whip up some Dalgona coffee and pretend you’re at a trendy café instead of stuck in lockdown. Stay sippin’, my friends! 💁‍♀️💅 #DalgonaDreams
