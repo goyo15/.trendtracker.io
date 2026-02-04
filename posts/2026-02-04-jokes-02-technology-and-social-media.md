@@ -1,0 +1,5 @@
+# Technology and social media — 2026-02-04
+
+Hey fam, let’s talk tech and social media – the good, the bad, and the oh-so-addicting. Sure, we can’t deny the awesome perks like staying connected with peeps 24/7, flexing our creative game with filters and memes, and effortlessly sliding into those DMs. But let’s keep it real – sometimes we fall into the trap of comparing our lives to those perfectly curated Insta feeds, feeling FOMO, and straight up wasting way too much time scrolling.
+
+The key is finding that sweet balance, using tech to empower ourselves and not let it dictate our self-worth. So, let’s vibe with our online tribe, but also remember to unplug, connect IRL, and prioritize mental health. Remember y’all, we control the tech, not the other way around. Stay woke, stay positive, and keep slaying on and off the screen. Peace out, tech warriors! #It’sATeenThing #TechVibes #StayBalanced

@@ -1,0 +1,5 @@
+# Fashion and beauty industry satire — 2026-02-04
+
+Hey fashionistas and beauty mavens! Let’s spill the tea on the hilarious world of fashion and beauty industry satire. From memes to comedy sketches, poking fun at trends and influencers has become a major mood. Whether it’s roasting ridiculous runway looks or mocking over-the-top makeup tutorials, satire keeps it real in a world obsessed with perfection. 
+
+But let’s be real, sometimes the industry takes itself WAY too seriously. Satire serves up a refreshing dose of reality, reminding us that even the most glamorous icons are just human (gasp!). So next time you see a meme mocking contouring or a parody of a fashion editorial, remember to laugh along. After all, style is about having fun and expressing yourself, not conforming to society’s beauty standards. Stay sassy, stay stylish, and never be afraid to rock your own unique vibe! #SatireSlayage 💁🏻‍♀️💅🏼👠🔥✨
