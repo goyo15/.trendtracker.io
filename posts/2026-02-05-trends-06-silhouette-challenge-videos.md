@@ -1,0 +1,5 @@
+# "Silhouette Challenge" videos — 2026-02-05
+
+Hey fam, let's talk about the latest TikTok craze - Silhouette Challenge videos! 🌟 If you haven't seen them poppin' up on your For You Page, you're missing out! These vids are all about showing off your confidence and creativity by dancing in a doorway and transitioning to a sultry silhouette against a red light filter. It's like your own mini music video moment! 💃🔥 
+
+But hey, a quick heads up - always remember to prioritize your safety and set boundaries when participating in challenges like these. There have been concerns about people potentially removing the red filter to reveal the true silhouette, so be careful and be cautious of what you're sharing online. Let's stay trendy and stay safe, fam! Keep shining bright and slay those Silhouette Challenge videos like the confident queens and kings you are! ✨ #SilhouetteChallenge #StaySafeStaySassy
