@@ -1,0 +1,5 @@
+# Silhouette Challenge — 2026-02-06
+
+Hey, all you cool cats and kittens! Let’s talk about the latest internet craze - the Silhouette Challenge. 💃🌟 This trend is blowing up on TikTok and Instagram, and I am all here for it! The idea is simple: people start off in normal clothes, then when the lights go down and the song “Put Your Head on My Shoulder” by Paul Anka plays, they strike a pose in a doorway bathed in red light. The best part? They transform into stunning silhouettes that show off their confidence and fierce vibes. 🕶🔥
+
+Not gonna lie, I’m totally obsessed with the creativity and empowerment this challenge brings. It’s all about owning your body and feeling like a boss. So, whether you’re a dancer, a singer, or just someone who loves to strut their stuff, the Silhouette Challenge is your time to shine! Who’s ready to light up the screen and show the world what they’ve got? Let’s do this! 💥✨ #SilhouetteChallenge #OwnYourPower

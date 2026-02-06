@@ -1,0 +1,3 @@
+# Throwback music challenges — 2026-02-06
+
+Hey squad, let's talk throwback music challenges! 🎶💿 Remember the good old days when we rocked out to our fave tunes on our Walkmans? Now it's time to put your music knowledge to the test with some epic throwback challenges. Whether it's naming the artist of a classic 90s hit or trying to guess the year a song was released, these challenges are the perfect way to show off your music cred and bond with your friends over some nostalgia-filled jams. So grab your headphones, crank up the volume, and let the throwback music showdown begin! Who's ready to be crowned the ultimate throwback music champ? Let's do this! 💥 #ThrowbackMusicChallenges #90sVibes #MusicTriviaMaster
