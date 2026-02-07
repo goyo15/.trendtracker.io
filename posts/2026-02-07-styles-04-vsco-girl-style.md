@@ -1,0 +1,5 @@
+# VSCO girl style — 2026-02-07
+
+Hey, babes! Let's chat about the VSCO girl phenomenon taking over our feeds. 🌿🌸🌊 From scrunchies to hydro flasks, this trend is all about embracing a laid-back, beachy vibe. I mean, who doesn't love some oversized tees, Birkenstocks, and shell necklaces? It's like being permanently on vacation, am I right? And let’s not forget the iconic messy bun and the love for all things reusable. 🌎💕
+
+But let's keep it real, being a VSCO girl is not just about the aesthetic. It's about standing up for our planet, spreading positivity, and supporting each other. So, whether you're rocking a Carmex lip balm or saying "sksksk", just remember to stay true to yourself and keep those good vibes flowing. Stay salty, stay sassy, and keep slaying that VSCO girl style. Hasta la vista, lovelies! 🌞🌴💋
