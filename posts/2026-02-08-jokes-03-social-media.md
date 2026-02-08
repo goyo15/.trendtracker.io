@@ -1,0 +1,5 @@
+# Social Media — 2026-02-08
+
+Hey fellow teens, let's talk about the ever-present beast that is social media. We all know we can't live without our daily dose of Instagram, TikTok, Twitter, and Snapchat. But let's face it, it's a double-edged sword. On one hand, it's a platform for self-expression, connecting with friends, and staying up to date on the latest tea. On the other hand, it can be a breeding ground for comparison, FOMO, and cyberbullying. 
+
+So, here's the tea – let's use social media responsibly. Be mindful of what you post, think twice before hitting that share button, and remember that what you see online isn't always reality. It's all about finding that balance between staying connected and unplugging when needed. So, scroll on, but with caution, my friends. Let's keep it real, stay positive, and remember that likes and followers don't define our worth. #StaySavvy #SocialMediaSavvy
