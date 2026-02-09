@@ -1,0 +1,5 @@
+# Choreography challenges (e.g., Savage Love, WAP) — 2026-02-09
+
+Hey fam! Let’s talk choreography challenges - the kind that make you wanna bust a move or two! Have you ever tried learning the Savage Love or WAP dance routines? Those moves are straight fire 🔥! They might look easy peasy, but trust me, they are full-on workouts. From the intricate footwork to the fierce attitude, mastering these dances is no joke.
+
+But here’s the deal – it’s all about confidence and having fun! Who cares if you mess up a step or two? Just keep grooving and own that dance floor like the boss you are. Challenge yourself to learn those choreos, crush it with your squad, and post those epic dance videos for the world to see. Embrace the challenge, embrace the dance, and show the world what you’re made of! Let’s set the dance floor on fire and slay those moves like the dancing queens and kings we are! 💃🕺 #ChoreoChallengeAccepted #DanceGoals

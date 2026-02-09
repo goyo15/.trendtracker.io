@@ -1,0 +1,5 @@
+# VSCO Girl - Relaxed and eco-friendly vibe featuring oversized tees, scrunchies, Hydro Flask water bottles, and Birkenstock sandals. — 2026-02-09
+
+Hey VSCO Girls and VSCO Guys, let’s talk about the ultimate laid-back and eco-friendly vibes of the VSCO trend! Rocking those oversized tees, scrunchies, Hydro Flask water bottles, and Birkenstock sandals like nobody’s business, this style screams chill with a conscience. And can we just take a moment to appreciate the power of a good scrunchie? It’s like an instant mood booster for your hair game. 
+
+Not only does this aesthetic have us looking effortlessly cool, but it also promotes sustainability with reusable water bottles and eco-friendly fashion choices. Plus, who doesn’t love a good oversized tee that feels like a hug? So whether you're on a beach day or just hanging out with friends, embrace the VSCO vibes and feel good about doing your part for the planet. Stay chill, stay eco-friendly, and keep slaying in those oversized tees, scrunchies, Hydro Flasks, and Birkenstocks! #VSCOlove 💚🌊🌿
