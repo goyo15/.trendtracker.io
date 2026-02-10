@@ -1,0 +1,5 @@
+# Preppy style: classic and polished look with collared shirts, sweaters tied over shoulders, pleated skirts, and loafers — 2026-02-10
+
+Hey, fashionistas! Let’s chat preppy style, the OG classy and polished look that’s making a major comeback. Think collared shirts that give off major Ivy League vibes, cozy sweaters tied effortlessly over your shoulders, pleated skirts serving major prep school realness, and don’t forget those classic loafers to tie the whole look together. 🧥✨
+
+Preppy style is all about looking put-together without even trying too hard. It’s like you stepped right out of a campus flick from the '90s - clueless, but make it fashion! 💁🏼‍♀️ So, why not throw on a collared shirt with a pleated skirt, tie a sweater over your shoulders, and slip into some loafers to trade in your casual style for some classic sophistication? Trust me, this look is timeless and chic, perfect for nailing that effortless cool-girl vibe. Prep is back, y’all! 💅🏼 #PrepIsTheNewBlack
