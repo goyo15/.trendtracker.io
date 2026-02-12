@@ -1,0 +1,5 @@
+# Social distancing and quarantine humor — 2026-02-12
+
+Hey, fellow quaranteens! Let’s talk about the power of social distancing and quarantine humor. It’s no secret that things have been pretty crazy lately, but one thing that’s helped me stay sane is finding humor in the situation. Whether it’s making silly TikToks with my family, coming up with hilarious Zoom backgrounds, or sharing memes about our new “normal,” laughter truly is the best medicine. 
+
+Sure, being stuck at home all day can get boring, but cracking jokes and finding the funny side of things can make it a lot more bearable. Plus, humor can bring us all together, even when we’re physically apart. So, next time you’re feeling cooped up or stressed out, why not try adding a little humor to your day? Trust me, a good laugh can make all the difference. Stay safe, stay funny, and remember, we’re all in this together!✌️🤣 #QuaranteenHumor
