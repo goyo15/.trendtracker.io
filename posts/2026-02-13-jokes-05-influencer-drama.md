@@ -1,0 +1,5 @@
+# Influencer drama — 2026-02-13
+
+Hey fam! Let’s spill the tea on some influencer drama that’s been shaking the newsfeeds! 🍵💥 From shady collabs to messy public call-outs, it’s been a bumpy ride in influencer land lately. Like, can these celebs not keep it together for one hot minute? 🤦‍♀️ But hey, drama sells, right? It’s like a never-ending episode of a reality show, except it’s all playing out online for everyone to see. 
+
+Guess what though – we eat it all up! Guilty as charged! Who doesn’t love a good scoop of gossip with their morning latte? 🤷‍♂️ But let’s not forget the real deal – at the end of the day, these influencers are just regular peeps with a bunch of followers. So, let’s enjoy the drama but also remember to keep it real. Who knows, maybe we’ll be the next drama queens lighting up the ‘gram one day! Stay tuned, fam - the influencer world is always on fire! 🔥✌️ #InfluencerDrama #SpillingTheTea

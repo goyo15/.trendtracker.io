@@ -1,0 +1,5 @@
+# DIY beauty disasters — 2026-02-13
+
+OMG, let’s talk about DIY beauty disasters! 🙈 We’ve all been there, thinking we’re gonna nail that Pinterest-worthy face mask or hair treatment, only to end up looking like a hot mess. Whether it’s accidentally dyeing your hair neon green instead of ash blonde or burning your face with a homemade exfoliating scrub, we’ve all had our fair share of beauty blunders.
+
+Pro tip: always do a patch test before slathering anything on your skin or hair. And if things go south and you find yourself resembling a science experiment gone wrong, don’t panic! Reach for the coconut oil to soothe that irritated skin or slap on a cute hat to hide that hair mishap. Remember, it’s all about embracing the imperfections and learning from our DIY fails. So keep experimenting, but maybe dial it back a notch on the crazy hacks, okay? Stay glowing, babes! 💅🏼💄✨ #DIYFail #BeautyBlunders
