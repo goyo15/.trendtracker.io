@@ -1,0 +1,5 @@
+# "Buss It Challenge" - Users show their transformation from casual to glam while dancing to Nelly's song "Buss It." — 2026-02-15
+
+Hey all you trendsetters and style mavens! Have you seen the latest viral sensation taking over TikTok? The "Buss It Challenge" is all about showcasing your glow-up game while busting a move to Nelly’s hit track. It's like a virtual catwalk where users go from chilling in cozy sweats to slaying in full glam in a matter of seconds. Talk about a jaw-dropping transformation! 
+
+This challenge is all about embracing your inner diva and strutting your stuff with confidence. Whether you're rocking a slick ponytail or glamming it up with a fierce makeup look, the "Buss It Challenge" is the perfect opportunity to show off your personal style and runway-ready attitude. So grab your camera, crank up the volume, and join the fun - because in this challenge, there's no such thing as too much glam! 💁✨ #BussItChallenge #GlowUpGoals #SlayAllDay

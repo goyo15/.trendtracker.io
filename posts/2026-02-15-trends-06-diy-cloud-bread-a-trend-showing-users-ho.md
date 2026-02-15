@@ -1,0 +1,5 @@
+# "DIY Cloud Bread" - A trend showing users how to make and enjoy the trendy cloud bread snack. — 2026-02-15
+
+Hey there, fellow foodies! 🍞☁️ Let’s talk about the latest culinary craze taking TikTok by storm - DIY Cloud Bread! 🌈🤩 This dreamy treat is like a fluffy, pastel-hued cloud that you can actually sink your teeth into. Plus, it’s super easy to make with just a few basic pantry ingredients. All you need is egg whites, sugar, and cornstarch – then whip it like there’s no tomorrow! 💨✨
+
+Not only is Cloud Bread a feast for the eyes, but it also tastes like a sweet, airy dream. Imagine biting into a pillowy soft bread that melts in your mouth with every heavenly bite. It’s the ultimate snack for when you want to add a pop of color to your day and your Instagram feed! 📸💫 So, grab those mixing bowls and get ready to whip up a batch of this whimsical treat. Trust me, your taste buds will thank you later! 😉👩‍🍳 #CloudBreadFTW #SnackGoals
