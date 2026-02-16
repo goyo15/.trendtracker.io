@@ -1,0 +1,5 @@
+# TikTok dances (e.g., Savage Love, Renegade) — 2026-02-16
+
+Hey, dance queens and kings! Let’s talk about TikTok dances - cause who doesn’t love busting a move to Savage Love or hitting that Renegade choreo? TikTok has taken the world by storm with these viral dance crazes, and let’s be real, we all love learning the latest routines to show off our skills. Whether you’re a pro dancer or a total rookie, TikTok dances are for everyone!
+
+Not gonna lie, mastering these dances can be a workout, but the feeling of nailing a new routine is pure satisfaction. Plus, once you’ve got the moves down pat, you can impress your friends and rack up those sweet likes on your dance vids. So, turn up the music, grab your phone, and get ready to slay those TikTok dances like the star you are. Let’s dance our way to viral fame, one video at a time! 🔥💃 #TikTokDanceGoals
