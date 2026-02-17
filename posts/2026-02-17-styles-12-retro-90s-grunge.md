@@ -1,0 +1,5 @@
+# Retro 90s Grunge — 2026-02-17
+
+Hey fellow cool cats and kittens! 🐱✌️ Let’s talk about why retro 90s grunge is making a MAJOR comeback in 2021! 🖤🎸 From plaid shirts to doc martens, this look is all about edgy vibes and not giving a fudge! 🤘 Channel your inner Kurt Cobain and rock the disheveled hair, ripped jeans, and oversized flannels like you’re straight outta the 90s. 💥🔥
+
+Whether you’re jamming to Nirvana or Pearl Jam or just vibing to the rebellious spirit of the era, grunge fashion is all about expressing your individuality and DGAF attitude! 😎🤟 So grab your chokers, throw on some combat boots, and get ready to slay the grunge game like the badass you are! 🖤✨ Let’s bring back that 90s nostalgia and show the world that grunge never goes out of style! 🌈🔝 #GrungeForever #90sAreBack

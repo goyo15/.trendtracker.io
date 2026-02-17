@@ -1,0 +1,3 @@
+# Slang and Gen Z lingo jokes — 2026-02-17
+
+Hey fam! Let’s spill the tea on Gen Z lingo jokes, ‘cause they’re straight fire 🔥. We’ve got jokes so savage they’ll have you shook! From “OK, boomer” to “sksksk and I oop”, our slang game is on point. And don’t even get me started on “no cap” and “stan”. We’re out here creating our own dictionary, and it’s lit. Wanna know a secret? Our humor is next level – just ask any Karen or Chad who tries to keep up with us. So next time you hear someone say “yeet” or “bet”, just know that’s our way of clowning around. Stay woke, stay flexin’, and keep slayin’ those Gen Z lingo jokes like a boss. Catch you on the flip side, squad! Peace out! ✌️ #GenZ #LingoJokes #SavageSlang
