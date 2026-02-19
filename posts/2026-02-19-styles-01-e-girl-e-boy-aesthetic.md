@@ -1,0 +1,5 @@
+# E-girl/E-boy aesthetic — 2026-02-19
+
+Hey, fam! Let’s talk about the e-girl and e-boy aesthetic that’s taking over our feeds! 🌟 From the colored hair, edgy makeup, and a whole lot of attitude, this trend is all about embracing your bold, alternative side. E-girls rock the neon colors, winged eyeliner, and cute accessories, while e-boys go for the skater look with beanies, chains, and graphic tees. 💁🏻‍♀️💀
+
+It’s all about expressing yourself unapologetically and owning your individuality. So, if you’re feeling a bit rebellious and want to stand out from the crowd, why not give this aesthetic a try? Break out the black lipstick, layer on those chains, and don’t forget to strike a pose for the ‘gram! 📸 Just remember, it’s not about fitting in, it’s about standing out and being true to yourself. Stay fierce, my peeps! 🔥 #EgirlEboyVibes #ExpressYourself #StayFierce
