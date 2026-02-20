@@ -1,0 +1,5 @@
+# Dark Academia - Drawing inspiration from classic literature and vintage fashion, featuring tweed blazers, oxford shoes, and school uniforms. — 2026-02-20
+
+Hey y'all! 📚🖋️ Are you ready to elevate your style and intellect with the ultimate dark academia vibes? 💫 Picture this: cozy tweed blazers, sophisticated oxford shoes, and sleek school uniforms straight out of your favorite classic novels. 📖🍂 Dark academia isn't just a fashion trend, it's a mindset - embracing the beauty of vintage fashion and the power of literature to create a timeless aesthetic. 🌟
+
+Channel your inner Hermione Granger or Sherlock Holmes with a touch of mystery and intelligence in every outfit. Whether you're hitting the books or hanging out with friends, dark academia is all about sophistication and a hint of rebellion against the mainstream. So grab your favorite leather-bound book, step into some classic loafers, and own the hallways with your impeccable style and literary charm. 🔥 Who says school uniforms can't be chic? 🎓✨ #DarkAcademia #VintageVibes #LiteraryFashion

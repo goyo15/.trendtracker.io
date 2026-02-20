@@ -1,0 +1,3 @@
+# Slang and language trends — 2026-02-20
+
+Hey fam! Let’s spill the tea on slang and language trends that are popping off right now. From “sksksk” to “yeet”, it’s lit how language evolves faster than you can say “Netflix and chill”. Flex your vocab with some on-point phrases that are low-key fire. And don’t sleep on the power of emojis – they’re the 🍒 on top of your texts. Speaking of, are you part of the VSCO girl squad or aiming for that E-girl aesthetic? Keep it 100 and stay woke on all the latest lingo because, TBH, nobody wants to be caught looking like a 🤡. Stay slaying your conversations, peeps, and remember, you’re not just chatting, you’re setting the trends. Stay fresh and keep it real! Peace out! #LanguageIsLit 💯🔥✌️
