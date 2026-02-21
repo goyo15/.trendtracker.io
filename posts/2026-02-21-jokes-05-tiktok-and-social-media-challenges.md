@@ -1,0 +1,5 @@
+# TikTok and social media challenges — 2026-02-21
+
+Hey, fellow trendsetters! Let’s spill the tea on TikTok and these wild social media challenges taking over our feeds! 📱💥 From dance crazes to beauty hacks, it seems like there’s a new challenge popping up every day. But, let’s keep it real, some of these challenges are way too risky (yeah, I’m looking at you, Tide Pod challenge 🙄). 
+
+Sure, it’s fun to join in and show off our skills, but let’s not forget to stay safe and be smart about it! Remember, just because everyone’s doing it doesn’t mean we have to follow suit. It’s all about having fun and being responsible while we’re at it. So, dance your heart out, try that new makeup look, but always think twice before jumping on the next challenge bandwagon. Let’s slay those challenges while keeping our heads (and our dignity) intact! Stay fabulous, xoxo 💃🏽✨ #ChallengeAccepted
