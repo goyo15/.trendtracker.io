@@ -1,0 +1,5 @@
+# VSCO Girl Look — 2026-02-22
+
+Hey there, fellow VSCO babes and bros! 🌿 Let’s chat about the iconic VSCO girl look that’s been taking over our feeds lately. From oversized t-shirts and scrunchies to Hydro Flasks and Birkenstocks, this trend is all about that effortlessly cool and eco-friendly vibe. It’s all about embracing our love for nature, saving the turtles, and spreading positive vibes, one metal straw at a time. 🐢💖
+
+But let’s be real, rocking the VSCO girl aesthetic isn’t just about the clothes and accessories - it’s a whole lifestyle. It’s about being kind to the planet, supporting each other, and being unapologetically yourself. So grab your reusable water bottle, throw on those Fjallraven Kanken backpacks, and let’s keep spreading good energy wherever we go. Stay VSCO, stay awesome, and keep slaying, my friends! 💕🌊🌻 #VSCOgirl #SaveTheTurtles
