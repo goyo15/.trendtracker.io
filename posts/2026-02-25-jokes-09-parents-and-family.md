@@ -1,0 +1,5 @@
+# Parents and Family — 2026-02-25
+
+Hey fam, let’s talk parents and family - the ultimate real-life drama series. We all love ‘em, but they sure know how to push our buttons, am I right? Whether it’s the constant nagging about grades or the never-ending curfew debates, our parents are always keeping us on our toes. And don’t even get me started on the embarrassing family gatherings where we have to pretend to enjoy Aunt Linda’s weird meatloaf. 
+
+But hey, let’s give credit where credit is due - they’ve been there for us since day one, cheering us on at every soccer game and drying our tears after every breakup. They may not always get us, but deep down, they’ve got our backs. So next time they’re getting on your last nerve, just remember, they’re just trying to figure this whole parenting thing out too. Family may be chaotic, but at the end of the day, they’re your ride-or-dies. Appreciate the craziness, it’s what makes us who we are. Peace out, fam! 🤘🏼 #FamilyFirst
