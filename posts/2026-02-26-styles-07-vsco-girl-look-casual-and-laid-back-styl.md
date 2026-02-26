@@ -1,0 +1,5 @@
+# VSCO girl look - casual and laid-back style with oversized t-shirts, scrunchies, and Hydro Flask water bottles — 2026-02-26
+
+Hey, VSCO girls! 🌺 Let’s talk about that laid-back vibe we’re all drooling over! Oversized tees, scrunchies in every shade, and that must-have Hydro Flask water bottle... seriously, this look is everything! 😎 It’s like, effortlessly cool, you know? Just throw on a tee, scrunch up that hair, grab your Hydro Flask, and you’re set! Plus, who can resist those metal straws and saving the turtles? 🐢💕
+
+I mean, it’s all about those beachy, carefree vibes that make you feel like you’re sipping on a smoothie in Hawaii, right? 🍹 And the best part is, you can rock this look anywhere - school, chilling with your squad, even just lounging at home. So, grab your scrunchies, flaunt that oversized tee, and stay hydrated with your Hydro Flask - ‘cause this look is here to slay! 💁‍♀️✨ #VSCOgirl #CasualStyleGoals #HydrateInStyle

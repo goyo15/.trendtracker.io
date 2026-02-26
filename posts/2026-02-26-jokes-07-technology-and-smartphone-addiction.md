@@ -1,0 +1,5 @@
+# Technology and Smartphone Addiction — 2026-02-26
+
+Hey, fam! Let’s keep it real – we all know we’re glued to our phones 24/7. 📱 But have you ever stopped to think about how much time you’re actually spending on them? Technology and smartphone addiction are legit issues that we can’t just ignore. It’s like, are we living in the moment or just living for the ‘gram? 💭
+
+From mindlessly scrolling through TikTok to constantly checking notifications, it’s easy to get sucked into the black hole of our screens. Let’s be honest, peeps – we need to set some limits and take control of our tech habits. It’s all about finding that balance, staying present, and actually engaging with the world around us. So put down your phone for a sec, look up, and take it all in. Because life happens offline, too. 👀✨ #TechDetoxNeeded #StayWoke #LiveIRL

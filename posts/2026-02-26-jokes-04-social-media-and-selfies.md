@@ -1,0 +1,5 @@
+# Social Media and Selfies — 2026-02-26
+
+Hey fam, let’s talk about social media and selfies! 📸 We all know that scrolling through our feeds can sometimes make us feel less-than, right? That perfect lighting, flawless filters, and posed smiles can make it seem like everyone else’s life is #goals. But here’s the tea: social media is just a highlight reel, not the full story. Real life is messy, unfiltered, and filled with both highs and lows. So, next time you feel down comparing yourself to others online, remember that you’re seeing just a snapshot of their reality. 
+
+Now, onto selfies - embrace them! Take those pics, show off your unique self, and spread those good vibes. Selfies are a form of self-expression and self-love, so don’t be shy about snapping that cute pic. Remember, confidence is key, filters are fun, but being real is what truly matters. Keep slaying, stay fabulous, and always remember: you’re enough just as you are. 💖 #SelfieLove #BeYourself #RealTalk
