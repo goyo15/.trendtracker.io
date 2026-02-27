@@ -1,0 +1,5 @@
+# Dance Challenges to "Savage Love" by Jawsh 685 — 2026-02-27
+
+Hey fam! 🕺🔥 If you haven’t already heard, the dance craze to “Savage Love” by Jawsh 685 is taking over TikTok like wildfire! 💃🔥 This track is straight fire and perfect for some sick dance challenges that will have you feeling like a total boss. 😎 Whether you’re a seasoned dancer or just looking to have some fun, these challenges are a must-try!
+
+Get your groove on and show off those killer dance moves with your squad. Let loose, get creative, and share your sick skills with the world - because why not!? 🌍💥 Don’t be shy, tag your crew and challenge them to bust a move with you. Let’s make “Savage Love” the anthem of the summer and spread those good vibes! 🔥💖 Keep slaying those dance challenges, fam! And remember, stay savage, stay fierce, and keep crushing it! 💪✨ #SavageLove #DanceChallenge #LitAF

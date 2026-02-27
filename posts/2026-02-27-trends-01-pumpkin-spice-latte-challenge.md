@@ -1,0 +1,3 @@
+# Pumpkin Spice Latte Challenge — 2026-02-27
+
+Hey, fam! 🎃☕️ Ready to spice up your fall game? It’s time for the ultimate Pumpkin Spice Latte Challenge! Round up your squad and hit up every coffee shop in town to find the best PSL. Who will win the coveted title of Pumpkin Spice Prince or Princess? 🏆 Get your taste buds tingling with cinnamon, nutmeg, and all those cozy vibes. But be warned, not all PSLs are created equal, so prepare for some serious sipping and judging. Will it be a #BasicFail or a #PSLPerfection? Keep track of your rankings and share your findings with the world. Let the pumpkin spice madness begin! Are you up for the challenge? Let’s pumpkin spice and everything nice! 🍂✨ #PSLChallenge #FallGoals #PumpkinSpiceEverything
