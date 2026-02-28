@@ -1,0 +1,5 @@
+# "Dalgona coffee" - a coffee-making trend where users whip instant coffee, sugar, and hot water to create a whipped coffee foam topping, inspired by a South Korean beverage. — 2026-02-28
+
+Hey peeps, let’s chat about the latest craze hitting our social feeds: Dalgona coffee! 🤩 This South Korean-inspired drink is not your basic cup of joe - it’s a whole vibe. All you need is instant coffee, sugar, and hot water to create that fluffy whipped topping that screams “I’m fancy, but make it easy peasy.” 💁‍♀️ And let me tell ya, it’s like sipping on a cloud of caffeinated goodness.
+
+Seriously, forget your average morning routine - Dalgona coffee is here to level up your coffee game and make your taste buds sing. It’s like having a café-style drink right in the comfort of your own home. So go ahead, whip, sip, and conquer the day like the trendy coffee connoisseur you know you are! ☕️✨ #DalgonaDreams #SippinInStyle
