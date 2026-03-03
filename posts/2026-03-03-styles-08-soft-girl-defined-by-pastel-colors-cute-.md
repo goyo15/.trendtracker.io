@@ -1,0 +1,5 @@
+# Soft girl - defined by pastel colors, cute accessories like hair clips and bows, and a generally feminine and whimsical style. — 2026-03-03
+
+Hey, fam! Let's talk about the soft girl aesthetic that's been blowing up our feeds lately. 🌸 Soft girl vibes are all about rocking those pastel colors like you just stepped out of a cotton candy dream, adding cute AF hair clips and bows to your look, and basically embracing your inner whimsical queen. 💖 It's like if Marie Antoinette had a modern-day makeover and started posting on Insta.
+
+Personally, I'm totally here for the soft girl trend. Who wouldn't want to channel some serious fairy tale princess vibes on the daily? So, whether you're all about layering on the pastels or just dabbling in a bit of whimsy here and there, remember that fashion is all about expressing yourself and having fun with your style. Stay soft, stay cute, and keep slaying those outfits, fam! 🎀 #SoftGirlVibes #PastelPerfection

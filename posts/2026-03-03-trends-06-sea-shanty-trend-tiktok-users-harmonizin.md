@@ -1,0 +1,5 @@
+# "Sea Shanty" trend - TikTok users harmonizing and singing traditional sea shanties, popularized by the viral sensation of the song "Wellerman" by Nathan Evans. — 2026-03-03
+
+Ahoy, my fellow TikTok sailors! Let’s talk about the sea shanty trend that’s blowing up our For You pages faster than you can say "anchors aweigh". Nathan Evans started it all with his catchy rendition of "Wellerman" that had us all feeling like we were sailing the high seas. Now, TikTok users everywhere are joining in, harmonizing and belting out these traditional tunes like they were born to be part of a pirate crew. 
+
+It’s wild how a simple sea shanty can bring so many people together, united by a love for music and a thirst for adventure. Whether you’re a seasoned sailor or a landlubber, there’s no denying the power of these songs to transport us to a different time and place. So grab your imaginary rum, hoist the sails, and let’s keep this sea shanty trend sailing smooth. Yo-ho-ho, and a bottle of viral success! ⚓🎶 #SeaShanty #TikTokTrend
