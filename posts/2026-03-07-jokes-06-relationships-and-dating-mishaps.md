@@ -1,0 +1,5 @@
+# Relationships and dating mishaps — 2026-03-07
+
+Hey fam, let’s talk relationships and dating mishaps, shall we? 🙄 We’ve all been there – the awkward first date, the confusing “are we talking or not” phase, and don’t even get me started on ghosting. Can I get an F in the chat for all the times we thought things were going great only to be hit with the “let’s just be friends” line? 💔 
+
+But you know what? It’s all part of the journey! Each cringeworthy moment is just a step closer to finding someone who actually gets you. So, brush off those dating mishaps like the fierce queen or king you are and keep on slaying. Remember, you’re not defined by your relationship status, so own your single life or find someone who treats you like the royalty you are. And hey, who knows? Maybe that next swipe right will be the start of something epic. Stay fabulous, my loves! 💁‍♀️💖 #RelationshipRealness #DatingDrama
