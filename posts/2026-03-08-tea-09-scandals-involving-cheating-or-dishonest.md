@@ -1,0 +1,5 @@
+# Scandals involving cheating or dishonesty — 2026-03-08
+
+Hey fam, let’s spill the tea ☕️ on all the scandalous cheating and dishonesty happening lately. Seriously, can we trust anyone these days? From influencers faking their perfect lives to students cheating in exams, it’s all spiraling out of control. And don’t even get me started on celebs using Photoshop to alter their pics – like, just be real, people! 
+
+But here’s the real deal: cheating and dishonesty never pay off in the long run. It might give you a temporary high, but the truth always comes to light. Remember, integrity is a major key 🔑. So let’s keep it real, stay authentic, and always choose honesty over the easy way out. Let’s set a new trend of transparency and trustworthiness, because real recognizes real 💯. Let’s keep it drama-free and classy, my friends. Stay woke and stay honest! #NoMoreCheating #KeepItReal
