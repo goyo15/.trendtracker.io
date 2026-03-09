@@ -1,0 +1,5 @@
+# Pastel color palette — 2026-03-09
+
+Hey fam! 💖 Let's talk about the pastel color palette - the ultimate dreamy vibe for your insta feed! 🌈 Pastel shades like blush pink, baby blue, mint green, and lavender are giving me all the feels right now. They're soft, sweet, and totally on trend. Whether you're into fashion, beauty, or interior design, pastels are the perfect way to add a touch of whimsy to your style. 💅🏼👗🦋
+
+Rock a pastel outfit for that Insta-worthy #OOTD or update your bedroom with pastel decor for maximum cozy vibes. You can even try a pastel makeup look for a fresh and flirty vibe. 🌸💄 Trust me, you'll be feeling like a pastel princess in no time! So, why not ditch the bold colors for a while and embrace the soft and subtle beauty of pastels? It's time to embrace your inner pastel queen! 👑✨ #PastelPower #DreamyVibes
