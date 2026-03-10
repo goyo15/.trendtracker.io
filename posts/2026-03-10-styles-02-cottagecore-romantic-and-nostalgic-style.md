@@ -1,0 +1,5 @@
+# Cottagecore - Romantic and nostalgic style with a focus on nature, floral prints, and vintage aesthetics. — 2026-03-10
+
+Hey, fellow fashionistas! Let’s talk about Cottagecore, the dreamy trend that’s taking over our feeds. With its romantic vibes and vintage flair, Cottagecore is all about embracing nature and all things cozy. Picture yourself in a flowy floral dress, wandering through a sun-dappled meadow or enjoying a picnic by a babbling brook. It’s like stepping into a fairytale!
+
+The best part? You can easily rock Cottagecore vibes with pieces you already have in your closet. Think flowy skirts, ruffled blouses, and floral accessories. Add a straw hat and some dainty jewelry for that extra whimsical touch. Embrace the earthy color palette and mix in some lace or crochet for that vintage feel. Whether you’re into picnics, flower picking, or just daydreaming in a cozy nook, Cottagecore is the perfect style to channel your inner romantic spirit. So go ahead, embrace the dreamy aesthetic and let your love for nature shine through! 💐🌿 #CottagecoreVibes

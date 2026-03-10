@@ -1,0 +1,5 @@
+# Social media — 2026-03-10
+
+Hey, fam! Let's spill some tea on social media. Is it just me, or is it like a full-time job trying to keep up with all the snaps, tweets, and Insta posts? Don't get me wrong, social media can be lit for staying connected with peeps and sharing those fire selfies. But let's be real, it's also a major time-sucker and can mess with our mental health. 
+
+Remember, not everything you see online is as real as it seems. Filters, edits, and perfect angles can make anyone look flawless. Don't let FOMO or comparison vibes bring you down. Keep it real, stay true to yourself, and remember that likes and followers don't define your worth. Take breaks when you need to, show love to your true squad, and use social media for good vibes only. Stay woke, stay strong, and stay slaying, fam! #NoFilterNeeded #PositivityOnly

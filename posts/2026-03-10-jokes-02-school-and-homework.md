@@ -1,0 +1,5 @@
+# School and homework — 2026-03-10
+
+Hey there, homework haters and school scramblers! Let's talk about the dreaded duo - school and homework. No matter how much we try to avoid it, they always find a way to sneak back into our lives like that annoying pop-up ad. School may be a necessary evil, but homework? Can we just hit the delete button already?
+
+I get it, we'd rather be binge-watching our favorite show or hanging out with friends than slaving away on math problems or writing essays. But here's the deal: school may not be our favorite pastime, but it's a stepping stone to our future goals. So, buckle up, crank out that homework, and show those assignments who's boss! We've got this, even if we have to chug a few extra cups of coffee to make it through. Stay strong, fellow students – we'll conquer school and homework together! #TeenLife #SchoolStruggles
