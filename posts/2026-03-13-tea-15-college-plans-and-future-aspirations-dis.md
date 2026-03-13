@@ -1,0 +1,5 @@
+# College plans and future aspirations - Discussions around college applications, dream schools, and post-graduation plans are common topics of gossip and speculation among teens. — 2026-03-13
+
+Hey loves! Let’s spill the tea on college plans and future aspirations. 🎓💭 It’s like the gossip factory is in overdrive with everyone buzzing about dream schools, SAT scores, and post-graduation goals. Are you team Ivy League, or are you more of a state school stunner? The struggle is real, but remember, your worth isn’t defined by a college’s acceptance letter. Own your journey! 🌟 
+
+Whether you dream of being a CEO, a doctor, a world traveler, or a TikTok influencer, now’s the time to map out your path. Researching colleges, drafting killer essays, and stacking those extracurriculars are crucial steps in making those dreams a reality. Don’t stress too much, though. Remember, life’s a marathon, not a sprint. So take a deep breath, work hard, and trust that the universe has your back. Your future is bright, babes! ✨ Keep shining! 💖 #CollegeBound #DreamBig
