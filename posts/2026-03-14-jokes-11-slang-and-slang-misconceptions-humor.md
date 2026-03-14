@@ -1,0 +1,5 @@
+# Slang and slang misconceptions humor — 2026-03-14
+
+Hey my rad readers! Let’s talk about slang – the cool, the cringy, and the misunderstood. Slang is like our secret teen language, but sometimes adults just don’t get it! They think we’re saying “lit” to talk about a literal fire. Um, hello? It means something super awesome happening! And don’t even get me started on the eye roll-inducing attempts at using “bae” and “on fleek” by the clueless grown-ups.
+
+But let’s face it, even we teens can get confused by new slang sometimes. I mean, who knew “sksksk” and “and I oop-” could actually make sense in a conversation? It’s all part of the hilarious world of slang! So next time someone tries to school you on what your fave slang means, just laugh it off. Stay true to your teen lingo, keep staying fly, and remember – the right slang at the right time is truly 🔥! Peace out, my fellow slangsters! 🤙 #teenlingo #slanglife

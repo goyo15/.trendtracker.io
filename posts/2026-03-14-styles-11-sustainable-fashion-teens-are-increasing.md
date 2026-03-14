@@ -1,0 +1,5 @@
+# Sustainable Fashion - Teens are increasingly aware of environmental issues, leading to a rise in thrifting, upcycling, and eco-friendly fashion choices. — 2026-03-14
+
+Hey fam! Let's talk about the hottest trend in the fashion world right now – sustainable fashion! 🌿👗 It's no secret that us teens are woke af about environmental issues and we're making moves to #SaveThePlanet in style. Thrifting? Heck yeah, finding gems at the thrift store is not only eco-friendly but also budget-friendly. Upcycling? DIY projects are lit 🔥 and give new life to old clothes. And don't even get me started on eco-friendly brands killing the game with sustainable fabrics and ethical practices. 🌍💚
+
+So, if you wanna slay your outfits and not harm the planet while you're at it, it's time to jump on that sustainable fashion bandwagon, guys! Let's show the world that being trendy and being environmentally-conscious can totally go hand in hand. Let's make Mother Earth proud with our fierce eco-friendly fashion choices! 💃✨ #SustainableSlay #TeenFashionRevolution

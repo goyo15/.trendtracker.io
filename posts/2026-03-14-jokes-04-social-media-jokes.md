@@ -1,0 +1,3 @@
+# Social media jokes — 2026-03-14
+
+Yo, let’s talk about social media jokes. 🤪 Whether it’s a hilarious meme, a savage tweet, or a cheeky TikTok, social media is the hub of all things funny. We’re constantly flooded with relatable content that makes us say, “OMG, that’s so me!” But let’s be real, not all social media jokes land. Some are major cringe, while others have us rolling on the floor laughing. And let’s not forget about the iconic Twitter roasts and Instagram clapbacks that keep us entertained for hours. So, next time you’re scrolling through your feed, keep an eye out for those gems that make you snort soda out of your nose. And hey, don’t be afraid to share your own jokes and memes - you might just go viral! 📱💥 #SocialMediaSass #JokesOnYou
