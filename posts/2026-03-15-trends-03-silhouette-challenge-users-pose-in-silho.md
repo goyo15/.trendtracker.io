@@ -1,0 +1,5 @@
+# "Silhouette Challenge": Users pose in silhouette against a doorway before revealing themselves in a sensual manner to the song "Put Your Head on My Shoulder." — 2026-03-15
+
+Hey, fellow trendsetters! Let’s talk about the latest online craze that’s got everyone striking a pose and feeling themselves - the "Silhouette Challenge". Picture this: users posing in silhouette against a doorway, showing off their best angles and vibes, all to the smooth tune of "Put Your Head on My Shoulder" by Paul Anka. It’s all about being mysterious and then revealing your true self in a totally sensual way. 
+
+But hey, let’s remember to keep it classy and respectful, okay? It’s all fun and games until someone takes it too far. So go ahead, embrace your inner model, groove to the music, and join the #SilhouetteChallenge hype! Just make sure you’re doing it for YOU, not for the likes or validation. Stay fierce, stay fabulous, and keep slaying those silhouettes! 💃🔥 #TrendsetterTuesdays

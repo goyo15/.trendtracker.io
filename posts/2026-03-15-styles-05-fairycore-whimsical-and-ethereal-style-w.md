@@ -1,0 +1,5 @@
+# Fairycore - whimsical and ethereal style with pastel colors, fairy-like accessories, and flowy silhouettes. — 2026-03-15
+
+Hey fam, let’s talk about the latest trend that’s making waves in the fashion world - Fairycore! 🧚‍♀️💫 This whimsical and ethereal style is all about channeling your inner fairy princess with dreamy pastel colors, fairy-like accessories, and flowy silhouettes that will have you feeling like you just stepped out of a fairy tale. 🌸✨
+
+Think soft baby pinks, mint greens, and lavender hues paired with delicate flower crowns, sparkling gemstones, and flowy dresses that make you feel like you’re floating on a cloud. Whether you’re frolicking through a meadow or just chilling with your squad, Fairycore is all about embracing your playful and magical side. So throw on a flowy dress, add some fairy dust glitter, and let your inner fairy shine! 🌟🌿 #FairycoreGoals #MagicalVibes

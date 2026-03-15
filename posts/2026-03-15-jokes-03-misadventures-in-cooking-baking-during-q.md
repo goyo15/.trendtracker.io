@@ -1,0 +1,5 @@
+# Misadventures in cooking/baking during quarantine — 2026-03-15
+
+Hey guys, so I attempted to become a master chef during quarantine, but let's just say it was more like a disaster chef situation. I thought making a simple pasta dish would be a piece of cake (or should I say, piece of pasta?), but I ended up burning the noodles not once, but twice. And don't even get me started on my sad attempt at baking cookies. They came out looking like sad little hockey pucks instead of the gooey goodness I was aiming for.
+
+But you know what? Despite the epic fails, it was actually kinda fun experimenting in the kitchen and getting creative with my cooking skills. Sure, I may have set off the smoke alarm a couple of times, but at least I can say I tried, right? Quarantine cooking may not have turned me into a culinary genius, but it definitely gave me some hilarious stories to tell. Stay tuned for more epic fails and maybe, just maybe, a kitchen triumph or two. Stay sassy, my fellow chefs-in-training!
