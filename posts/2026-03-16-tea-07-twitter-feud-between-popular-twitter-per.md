@@ -1,0 +1,5 @@
+# Twitter feud between popular Twitter personalities Caleb and Ava — 2026-03-16
+
+Hey fam! 🌟 Let’s spill the tea on the latest Twitter drama between Caleb and Ava, two iconic Twitter personalities. 💥 It all started when Caleb called out Ava for stealing his viral tweet idea, and things escalated real quick! 😱 The shade they’ve been throwing at each other is straight-up lit 🔥, with their followers choosing sides faster than you can say “cancel culture”. 😳
+
+Who knew 280 characters could cause so much chaos?! 😂 Caleb and Ava are serving up major drama for our entertainment, and honestly, I’m here for it! 🙌 Will they squash the beef or keep the Twitter war going? Who can say, but one thing’s for sure – this feud has the TL buzzing! 🐦💬 Stay tuned for more updates on this Twitter showdown, and remember, in this world of retweets and likes, all is fair in love and Twitter beef! ✌️💻 #TeamCaleb #TeamAva #TwitterDrama

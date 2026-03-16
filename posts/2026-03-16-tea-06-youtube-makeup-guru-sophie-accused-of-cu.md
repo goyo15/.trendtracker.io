@@ -1,0 +1,5 @@
+# YouTube makeup guru Sophie accused of cultural appropriation — 2026-03-16
+
+Hey fam, have you heard the tea brewing in the beauty community? YouTube makeup guru Sophie is under fire for cultural appropriation - and let me spill it all for you. Sophie has been called out for appropriating traditional cultural practices and claiming them as her own unique makeup trends. From bindis to tribal face paint, she’s been accused of disrespecting and exploiting different cultures for views and likes.
+
+Unsurprisingly, fans and fellow beauty influencers are calling her out for her ignorance and lack of understanding about the importance and significance of these cultural symbols. It’s not just about makeup, it’s about respecting and valuing the traditions of others. This drama is a reminder that cultural appropriation in the beauty industry is not cool, and influencers like Sophie need to educate themselves and apologize when they mess up. Let’s hope she learns from this and starts using her platform to celebrate diversity, not disrespect it. Stay woke, beauties! #NoMoreCulturalAppropriation

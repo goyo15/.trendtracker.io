@@ -1,0 +1,5 @@
+# Cottagecore - Embracing a romantic, countryside-inspired look with flowy dresses, floral prints, and vintage aesthetics. — 2026-03-16
+
+Hey, lovelies! Let's chat about the dreamy trend that's taking over our feeds - Cottagecore! 🌿🌸 Embracing this romantic, countryside-inspired look is all about channeling those cozy, vintage vibes with flowy dresses, floral prints, and all things bucolic. Picture yourself frolicking through wildflower fields in a flowy midi dress, straw hat on, and a basket in hand for the ultimate cottagecore aesthetic. 🌻✨ 
+
+Whether you're a city slicker or a small-town sweetheart, you can rock this trend by incorporating nature-inspired pieces into your wardrobe. Think lace details, puff sleeves, and earthy tones to bring some rustic charm to your style. So, let's escape the hustle and bustle for a moment and embrace the whimsical beauty of Cottagecore. Get ready to feel like a character straight out of a fairy tale! 💫💕 #CottagecoreVibes #VintageChic

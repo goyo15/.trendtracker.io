@@ -1,0 +1,5 @@
+# VSCO girl culture - Characterized by laid-back fashion, eco-conscious lifestyle choices, and use of specific accessories like Hydro Flasks and scrunchies. — 2026-03-16
+
+Hey there, fellow trendsetters! Let’s spill the tea on VSCO girl culture. 🌸🌿 From the scrunchies in our hair to the Hydro Flasks in hand, we’re all about that laid-back, eco-conscious vibe. 🌊🌿 Whether we’re sipping on reusable straws or rocking oversized shirts, VSCO girls are all about that eco-friendly life. 🌍💚 And don’t even get me started on those friendship bracelets - talk about a fashion statement. 💁‍♀️✨
+
+But here’s the real tea - being a VSCO girl isn’t just about the accessories, it’s about embracing a carefree lifestyle and spreading positive vibes. 💖✌️ So grab your metal straws, slip on those Birkenstocks, and let’s save the turtles together. 🐢🌍 Whether you’re snapping pics of sunsets or just chillin’ with friends, remember - being a VSCO girl is all about being true to yourself and keeping it real. Stay iconic, my friends. ✌️🌺 #VSCOgirl #SaveTheTurtles

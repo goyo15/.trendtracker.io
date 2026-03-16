@@ -1,0 +1,5 @@
+# Riddles and wordplay — 2026-03-16
+
+Hey there, word wizards! Let’s talk riddles and wordplay - the OG brain teasers that have been keeping us on our toes since forever. 👾 Whether you’re a Shakespeare quoting pro or just love a good pun, there’s something undeniably thrilling about cracking a riddle or crafting a clever play on words. It’s like a little mental workout that leaves you feeling victorious. 🏆 
+
+And let’s be real, wordplay isn’t just for fun – it’s an art form. From tongue twisters to cryptic crosswords, there’s a whole world of linguistic gymnastics out there waiting to be explored. So next time you’re bored out of your mind, ditch the scrolling and flex those word muscles instead. 💪 Who knows, you might just stumble upon the perfect pun to impress your friends or unscramble a riddle that’s been driving you bonkers. Word nerds unite – let’s make language our playground! 🧠🔍 #RiddleMeThis #WordPlayWonders

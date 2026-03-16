@@ -1,0 +1,3 @@
+# Social media jokes — 2026-03-16
+
+Hey, fam! Let’s chat about the real tea on social media jokes. 🤳💬 Sure, we all love a good meme or a funny TikTok video, but let’s not front – not all social media jokes are created equal. Some are downright cringey or just plain offensive. Let’s keep it 💯, peeps – jokes that punch down or spread hate ain’t it. So next time you hit that retweet or share button, ask yourself: is this joke harmless fun or is it crossing a line? Let’s create a positive vibe online, where everyone feels included and respected. And hey, if you got jokes, make ‘em witty and uplifting – let’s spread those good vibes like confetti. Stay woke, stay funny, and remember: don’t be a joke, be the punchline. 😉✨ #PositiveVibesOnly #SpreadKindness。”
