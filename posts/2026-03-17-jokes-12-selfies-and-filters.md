@@ -1,0 +1,5 @@
+# Selfies and filters — 2026-03-17
+
+Hey fellow teens, let’s be real for a sec—selfies and filters have become our go-to tools for crafting the perfect online persona. But are we falling into the trap of comparison culture and creating unrealistic beauty standards for ourselves? It’s time to ditch the filters and embrace our natural beauty—flaws and all. Let’s celebrate our uniqueness and quirks, because that’s what makes us stand out in a sea of cookie-cutter perfection.
+
+Instead of obsessing over editing out imperfections, let’s focus on capturing genuine moments and memories. Remember, self-love is the most attractive filter you can wear, so let your confidence shine through. Embrace your authentic self, because that’s what truly makes you beautiful. So, next time you’re about to slap on a filter, think twice and ask yourself—am I enhancing or altering my true self? Let’s keep it real and stay selfie-confident, no filter needed. ✨ #SelfieLove #NaturalBeauty

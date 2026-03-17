@@ -1,0 +1,5 @@
+# Dark academia - vintage-inspired, intellectual fashion with a focus on structured silhouettes and muted color palettes — 2026-03-17
+
+Hey, fellow bookworms and trendsetters! Let’s talk about the hottest style trend sweeping the internet right now - Dark Academia. Picture yourself strolling through the university halls looking like you just stepped out of a vintage novel – that’s the vibe we’re going for. Dark Academia fashion is all about channeling those intellectual vibes with structured silhouettes, muted colors, and a touch of vintage flair. Think tweed blazers, pleated skirts, oxford shoes, and maybe even a classic trench coat to top it off.
+
+This trend is perfect for those who love to blend sophistication with a touch of mystery. Whether you’re hitting the library or meeting up with your study group, Dark Academia style will have you looking effortlessly chic and oh-so-intellectual. So, grab your favorite classic novel, put on your best vintage-inspired outfit, and let’s embrace the academic aesthetic together. Stay classy, stay bookish, and stay stylish! 📚🖤 #DarkAcademia #VintageVibes #FashionForward

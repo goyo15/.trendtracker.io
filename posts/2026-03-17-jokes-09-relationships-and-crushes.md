@@ -1,0 +1,5 @@
+# Relationships and crushes — 2026-03-17
+
+Hey fam, let’s chat about the wild world of relationships and crushes. 💕 We’ve all been there – crushing on someone like they’re our own personal TikTok star. But tbh, crushes can be totally unpredictable. One day you’re all heart-eye emojis, the next you’re wondering why you even liked them in the first place. It’s a rollercoaster of emotions, y’all. 🎢
+
+And relationships? Don’t even get me started. They can be as confusing as trying to decode your crush’s Snapchat streaks. But hey, that’s part of the fun, right? Navigating the ups and downs, learning about yourself, and figuring out what you want. Just remember, it’s all about finding someone who vibes with your true self – not just the filtered version you show on Insta. So buckle up, enjoy the ride, and remember that the best relationships start with being true to yourself. Stay real, stay fabulous. ✌️ #RelationshipDrama #CrushChronicles
