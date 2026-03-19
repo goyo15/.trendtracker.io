@@ -1,0 +1,5 @@
+# Self-deprecating jokes — 2026-03-19
+
+Hey fam, let’s talk about self-deprecating humor – you know, those jokes we crack about ourselves that can be funny but also kinda low-key sad? It's like a double-edged sword: on one hand, it's a way to cope with our insecurities and show we don’t take ourselves too seriously. But on the other hand, it can reinforce negative beliefs about ourselves and be a mask for deeper issues. 
+
+So, is it okay to drop self-deprecating bombs all the time? Sure, a little self-roasting can be funny and relatable, but let’s not let it become our default mode. We’re fabulous creatures, and we don’t need to tear ourselves down to fit in or be funny. Let’s strive for self-love and lift each other up with positive vibes instead. Remember, you’re a rockstar – own it, embrace it, and shine bright like the diamond you are. Keep slaying, fam! ✨ #PositiveVibesOnly #SelfLove #RockstarMindset

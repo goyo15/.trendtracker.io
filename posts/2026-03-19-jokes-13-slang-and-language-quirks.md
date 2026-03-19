@@ -1,0 +1,5 @@
+# Slang and language quirks — 2026-03-19
+
+Hey lovelies, let’s talk about the super cool world of slang and language quirks! 🤪💬 Whether you’re flexing with your fam or spilling the tea with your squad, using slang adds that extra spice to your convo. But let’s not forget those hilarious language quirks that make us say “wait, what?!” 😂 Like why do we say “literally” when we’re definitely not being literal? It’s a mystery, fam. And don’t even get me started on how totally ratchet it is when people misuse “literally." 🙄
+
+But hey, who am I to judge? Language is always evolving, and slang gives it that extra oomph! So, embrace those quirky phrases and slang words, ‘cause that’s what makes you uniquely you! Plus, it’s like, totally rad to stay fly with the latest lingo, amirite? Keep slaying those words, babes! 💁‍♀️🔥 #SlangGoals #LanguageQuirks

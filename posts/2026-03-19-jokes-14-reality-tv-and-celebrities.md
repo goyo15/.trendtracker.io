@@ -1,0 +1,5 @@
+# Reality TV and celebrities — 2026-03-19
+
+Hey, fellow teens! Let’s dish about reality TV and the wild world of celebs! 🌟 Whether you’re into watching drama unfold on The Bachelor or keeping up with the Kardashians, reality TV is our guilty pleasure. But let’s get real - those shows are scripted AF! 🎬 And don’t even get me started on the so-called “celebrities” - half of them are famous for, well, nothing! 💁‍♀️ 
+
+Sure, it’s fun to escape into their glamorous lives for a bit, but let’s remember they’re regular people just like us (except with way more money and drama). So, instead of obsessing over their every move, let’s focus on our own goals and dreams. We’re the next generation of movers and shakers, and we’re gonna make our own reality TV-worthy stories! 🌟 Let’s stay real, stay fabulous, and keep slaying, my friends! 💅 #TeenBlog #RealityTV #CelebDrama
