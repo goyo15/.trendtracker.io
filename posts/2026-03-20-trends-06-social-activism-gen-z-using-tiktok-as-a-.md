@@ -1,0 +1,5 @@
+# Social Activism - Gen Z using TikTok as a platform to raise awareness and advocate for social justice causes. — 2026-03-20
+
+Hey there, fellow Gen Z warriors for change! Let’s talk about how our generation is taking over TikTok and using it as the ultimate platform for social activism. From fighting climate change to advocating for racial equality, we’re not just here to dance and lip-sync (although we slay at that too). TikTok has become our stage to raise awareness, educate others, and spark meaningful conversations about important issues. 
+
+With our short and snappy videos, we’re able to reach a wide audience and make a real impact. Whether it’s spreading awareness about LGBTQ+ rights or calling out injustices, we’re not staying silent. We’re using our creativity, humor, and passion to drive change and make the world a better place. So, next time you’re scrolling through TikTok, why not join the movement? Like, share, and amplify the voices of those fighting for social justice. Together, we can create a more inclusive and equitable world. Let’s keep raising our voices and making a difference, one TikTok video at a time! #GenZActivism #TikTokForChange ✊💫
