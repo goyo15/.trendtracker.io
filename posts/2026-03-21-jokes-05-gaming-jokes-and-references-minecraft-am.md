@@ -1,0 +1,5 @@
+# Gaming jokes and references (Minecraft, Among Us, Fortnite) — 2026-03-21
+
+Hey gamers! Let's talk about gaming jokes and references that are as iconic as Steve's square head in Minecraft, the sus vibes in Among Us, and the wild Fortnite dance moves. From building a dirt house in Minecraft to pretending to do tasks while actually sabotaging the crew in Among Us, there's no shortage of hilarious moments to meme about. 
+
+Whether you're dropping into Tilted Towers in Fortnite or accusing your friends of being the impostor, these games have become a staple in pop culture, spawning countless jokes and references that resonate with gamers worldwide. So next time you're in a heated debate over who the impostor is or trying to perfect your floss dance, remember to take a moment to appreciate the humor and camaraderie these games bring. Stay gaming and keep those jokes coming, because at the end of the day, laughter is the best loot you can get! GG, gamers! #GameOn

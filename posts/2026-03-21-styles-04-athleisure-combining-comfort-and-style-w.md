@@ -1,0 +1,5 @@
+# Athleisure - Combining comfort and style with sportswear-inspired pieces like leggings, hoodies, and sneakers. — 2026-03-21
+
+Hey fam, let's talk athleisure - the ultimate combo of comfort and style that's taking over the fashion game! 💥 Whether you're hitting the gym, hanging with friends, or just lounging around, athleisure has got your back. Leggings? Check. Hoodies? Check. Sneakers? Check. It's all about looking fly while feeling cozy AF. 😎
+
+Mix and match sportswear-inspired pieces to create killer looks that scream street-style chic. Don't be afraid to experiment with bold prints, neon colors, and oversized silhouettes. The key is to make it look effortless, like you just threw on whatever was lying around, but still lookin' like a total babe. Trust me, athleisure is the ultimate flex for all us cool kids trying to slay the fashion game while staying comfy. So, pull on those leggings, throw on that hoodie, lace up those kicks, and werk it, hunny! 🔥 #AthleisureGoals #ComfortMeetsStyle

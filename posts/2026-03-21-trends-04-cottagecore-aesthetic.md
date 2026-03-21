@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2026-03-21
+
+Hey fam, let's talk about the cottagecore aesthetic that's blowing up on social media rn! 🌿🌻 If you’re all about cozy vibes, vintage aesthetics, and fairy-tale landscapes, then cottagecore is def for you. Think flowing dresses, flower crowns, grandma-chic decor, and picnics in meadows - all the Tumblr vibes you could ever want!
+
+Whether you're a city slicker dreaming of country life or a nature enthusiast craving that rustic charm, cottagecore is all about embracing simplicity and the beauty of the great outdoors. Plus, who wouldn’t want to escape all this chaos and just frolic in a meadow somewhere, right? 🌼 So grab your wicker basket, lace up those boots, and let’s channel our inner cottagecore fairy princesses together! Stay wild, stay whimsical, and always remember to stop and smell the roses, peeps. 🌸✨ #CottagecoreVibes #EscapeToNature
