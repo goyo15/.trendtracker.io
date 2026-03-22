@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2026-03-22
+
+Hey there, fellow teens! Let’s talk about the oh-so-trendy Cottagecore aesthetic that’s been taking over our Insta feeds lately. Picture this: rolling green fields, quaint little cottages, floral dresses, and cozy knit sweaters. Cottagecore is all about romanticizing the simple country life and embracing nature in all its wholesome glory. It’s like living in a fairytale world where baking pies, picking wildflowers, and cuddling with cute animals is the ultimate vibe.
+
+Whether you’re into vintage thrift finds, dainty accessories, or crafting DIY projects, Cottagecore is the perfect aesthetic for those who dream of a more peaceful and idyllic existence. So, grab your straw hat, pack a picnic basket, and let’s escape to a world filled with charm and tranquility. Because in the chaotic whirlwind of teenage life, sometimes we all just need a little slice of cottagecore paradise to unwind and reconnect with nature. Happy cottagecore-ing, lovelies! 🌿🌻✨
