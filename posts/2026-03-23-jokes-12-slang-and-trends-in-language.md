@@ -1,0 +1,5 @@
+# Slang and Trends in Language — 2026-03-23
+
+Hey, fam! Let’s spill the tea on slang and trends in language. Can we just talk about how lit it is when a new word or phrase goes viral?! From "yeet" to "sksksk", language is constantly evolving and it’s, like, totally iconic. It’s cray how one day you’re saying “on fleek” and the next day it’s “snatched”. But that’s what makes being a part of Gen Z so rad – we’re always ahead of the curve when it comes to language trends.
+
+And let’s not forget about how we use emojis to express our feels. Like, who needs words when you can just send a laughing-crying face or a heart-eyes emoji, amirite? So next time someone says you’re being extra with your slang, just remember that you’re just keeping up with the times, and that’s what makes you a total trendsetter. Stay hype, stay woke, and keep slaying those language trends, fam! ✌️🔥 #SlangSquad #LanguageGloUp

@@ -1,0 +1,5 @@
+# VSCO girl - Characterized by laid-back and eco-friendly attire, such as oversized t-shirts, scrunchies, Hydro Flasks, and Birkenstock sandals. Associated with a carefree and nature-loving lifestyle. — 2026-03-23
+
+Hey, fam! Let's talk about VSCO girls - the ultimate queens of chill vibes and eco-friendly swag! 🌿💧 Rocking those oversized tees, scrunchies for days, Hydro Flask always on deck, and Birkenstocks giving off major laid-back vibes. These girls are all about that carefree and nature-loving lifestyle, and they are totally owning it! 🌻🌊
+
+Whether they are snapping pics of stunning sunsets or hitting the waves with their eco-friendly surfboards, VSCO girls know how to make a statement while staying true to their values. It's all about being comfortable in your skin, embracing the beauty of the environment, and spreading positive vibes wherever you go. So, grab your Hydro Flask, slip on those Birks, and let your inner VSCO girl shine! 💫 #VSCOgirl #EcoFriendlyFashion #ChillVibes
