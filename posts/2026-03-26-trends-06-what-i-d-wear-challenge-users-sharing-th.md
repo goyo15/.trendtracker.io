@@ -1,0 +1,5 @@
+# "What I'd Wear" challenge - Users sharing their dream outfits for various scenarios — 2026-03-26
+
+Hey squad, have you heard about the latest trend taking over social media? It’s the “What I’d Wear” challenge and let me tell you, it’s super fun and addictive! 🌟 Users are sharing their dream outfits for different scenarios like a music festival, first date, or even a job interview. It’s a creative way to showcase personal style and let your fashion imagination run wild. 
+
+I mean, who hasn’t fantasized about strutting into a music festival rocking a killer boho outfit or owning the room in a sleek power suit for a job interview, am I right? It’s all about expressing your unique vibe and showing off your fashion prowess. So, if you’re feeling uninspired with your wardrobe or just want to have some fun, join the trend and show us “What You’d Wear” for your ultimate dream scenario! 💃🕺 #FashionGoals #DreamOutfits
