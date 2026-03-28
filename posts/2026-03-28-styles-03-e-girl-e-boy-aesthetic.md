@@ -1,0 +1,5 @@
+# E-girl / E-boy aesthetic — 2026-03-28
+
+Hey, fam! Let’s talk about that E-girl/E-boy aesthetic that’s taking over social media by storm. Think bold colors, funky hairstyles, and edgy makeup vibes. E-girls rock the TikTok scene with their oversized shirts, chain belts, and of course, that signature winged eyeliner. Meanwhile, E-boys are sporting skater fashion with a touch of grunge, complete with beanies and chunky sneakers. 🤘
+
+What I love about the E-girl/E-boy look is that it’s all about self-expression and breaking the norms. It’s like saying, "I don’t care what anyone thinks, I’m gonna slay in my own way!" So, whether you’re vibing with the e-girl heart under your eye or the e-boy striped long sleeves, just remember to stay true to YOU. Keep shining, keep expressing yourself, and most importantly, keep being unapologetically awesome! 💥 #Egirl #Eboy #ExpressYourself
