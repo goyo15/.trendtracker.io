@@ -1,0 +1,5 @@
+# Cottagecore - Inspired by the countryside, this whimsical trend features floral dresses, ruffled blouses, pinafores, and rustic elements for a romantic and nature-inspired look favored by many teens. — 2026-03-29
+
+Hey, fellow trendsetters! Have you heard about the latest fashion craze taking over social media? It’s called Cottagecore, and it’s all about channeling those dreamy countryside vibes into your wardrobe. Picture yourself frolicking through fields of wildflowers in a flowy floral dress or twirling around in a ruffled blouse straight out of a storybook. Cottagecore is like stepping into a fairytale, with its pinafores and rustic elements adding a touch of whimsy to your everyday style. 
+
+Whether you’re a nature lover or just want to add a bit of romance to your look, Cottagecore is the trend for you. So trade in your city slicker attire for some country charm and embrace the cozy, vintage-inspired aesthetic that’s got everyone talking. Get ready to bloom like a flower in this enchanting trend! 🌿🌸 #CottagecoreVibes #FashionFairytales
