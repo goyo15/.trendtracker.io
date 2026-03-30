@@ -1,0 +1,5 @@
+# Plant parenting - Gen Z's interest in houseplants and gardening has surged, with TikTok users sharing tips on plant care and creating indoor jungles. — 2026-03-30
+
+Hey fellow plant parents! 🌿🌱 Are we surprised that Gen Z is OBSESSED with plants now? Not at all! We’ve turned our homes into indoor jungles, thanks to our new BFFs - houseplants! 🌿 From succulents to monstera plants, we've got ‘em all thriving in our rooms. And let's talk about the plant care routines we’ve got going on - we’re basically plant whisperers now! 💁‍♀️
+
+TikTok has become our go-to for all the plant tips and tricks, because why waste time Googling when you can watch a fun video instead, am I right? #PlantTikTok is the place to be for all the plant inspo you need! So, grab your watering can, put on your gardening gloves, and let’s continue to turn our spaces into the plant-filled paradise we deserve. Let’s show everyone that we’re not just the generation of smartphones and social media - we’re also the generation of plant parents! 🪴✨#PlantParentingFTW #GenZGreenThumb

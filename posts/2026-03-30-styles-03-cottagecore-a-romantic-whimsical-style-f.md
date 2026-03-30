@@ -1,0 +1,5 @@
+# Cottagecore - A romantic, whimsical style focusing on flowy dresses, floral prints, and a pastoral aesthetic reminiscent of countryside living. — 2026-03-30
+
+Hey there, fam! 👋 Let’s talk about the latest trend taking over our feeds: Cottagecore! 🌸🏡 This vibe is all about channeling those dreamy countryside vibes and embracing your inner flower child. Think flowy dresses, vintage florals, and a touch of that old-fashioned charm. It’s like stepping into a fairytale book and living your best cottage life fantasy. 🌿✨
+
+Whether you’re picnicking in a meadow, baking fresh bread, or just lounging in your room surrounded by dried flowers and cozy blankets, Cottagecore is all about slowing down and finding beauty in the simple things. 🌼💕 So, grab your straw hat and a basket and let’s escape to a whimsical world where the only stress is choosing which flower crown to wear. 🌺👒 #CottagecoreVibes #LivingMyBestCountrysideFantasy
