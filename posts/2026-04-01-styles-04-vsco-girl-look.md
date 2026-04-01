@@ -1,0 +1,5 @@
+# VSCO girl look — 2026-04-01
+
+Hey lovelies, are you ready to talk about the VSCO girl look? 🌿🌺💫 We all know about this trendy style that’s taken over social media. From scrunchies to oversized t-shirts, Hydro Flasks to Birkenstocks, the VSCO girl look is all about that laid-back, beachy vibe. It’s like, "sksksk, save the turtles, and metal straws, amirite?" 🐢🥤✨ 
+
+But let’s be real, even if you don’t have a perfectly curated Instagram feed or live near the coast, you can totally rock the VSCO girl look with your own twist. Mix in some thrifted finds, DIY accessories, or whatever makes you feel like your best, most confident self. Remember, it’s not about being cookie-cutter, it’s about expressing your unique style and having fun with fashion. So go ahead, grab your Shell necklace, practice your "And I oop!" and let’s embrace our inner VSCO girls! 🌊🌿💖 #savetheturtles #vsco #selfexpression

@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2026-04-01
+
+Hey lovelies, let’s talk about the cozy and dreamy world of Cottagecore aesthetic! 🌿🌸 Picture this: whimsical cottages in the countryside, floral dresses, vintage teacups, and a flourishing garden full of wildflowers. It’s all about embracing a simpler way of life and getting in touch with nature. Whether you’re into baking bread from scratch, embroidering, or just lounging in a flowy dress, Cottagecore is all about creating your own little slice of paradise 🌻✨
+
+It’s the perfect escape from the hustle and bustle of everyday life, allowing you to slow down and appreciate the beauty of the natural world around you. Embrace the earthy tones, rustic decor, and gentle vibes – it’s all about finding peace and tranquility in the little things. So, grab a vintage book, cozy up with a cup of tea, and let Cottagecore transport you to a world of enchantment and whimsy. Happy daydreaming, babes! 💖✨ #CottagecoreVibes #DreamyEscape
