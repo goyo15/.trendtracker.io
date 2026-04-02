@@ -1,0 +1,3 @@
+# Technology and social media jokes — 2026-04-02
+
+Hey fam! Let’s talk about tech and social media jokes cuz who doesn’t love a good laugh, amirite? 🤣 Whether you’re roasting TikTok trends or poking fun at Instagram filters, there’s always a meme or two to make us LOL. And let’s not forget about those classic “there are 10 types of people in the world” jokes – you know you’re a techie if you get it! 🖥️💁‍♀️ But hey, remember to keep it kind and steer clear of cyberbullying – we’re all about spreading positivity over here! So next time you’re scrolling through your feed, take a sec to share a tech joke and brighten someone’s day. Keep laughing, keep posting, and always keep it real! #TechLaughs #StaySavage #SpreadPositivity 💻📱✨
