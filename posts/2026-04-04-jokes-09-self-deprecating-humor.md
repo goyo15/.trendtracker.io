@@ -1,0 +1,5 @@
+# Self-deprecating humor — 2026-04-04
+
+Hey, fam! Let’s talk about self-deprecating humor – that fine line between being hilariously relatable and straight-up self-sabotage. We’ve all dropped a self-roast or two for some laughs, but remember, it’s all fun and games until you start believing your own jokes. It’s like that meme that’s so relatable it hurts, but let’s not let it define us.
+
+Sure, poking fun at ourselves can be a mood lifter, but we’re all queens and kings who deserve to be hyped up, not torn down. So, next time you catch yourself serving a self-burn, balance it out with a dose of self-love. Because we’re way too fab to let a punchline dim our sparkle. Stay sassy, stay witty, and keep slaying – just remember, the most fire jokes are the ones that don’t ignite our insecurities. Peace out! #LoveYourselfFirst 💅✨

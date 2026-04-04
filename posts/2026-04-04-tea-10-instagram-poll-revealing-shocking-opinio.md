@@ -1,0 +1,5 @@
+# Instagram poll revealing shocking opinions within a friend group — 2026-04-04
+
+Hey, squad! 🌟 Let's talk about some major tea that got spilled on Instagram recently. So, I did this poll within my friend group to see everyone's opinion on something totally random, and let me tell you, the results were SHOCKING. Like, I'm talking jaw-dropping, gasp-worthy shocking. 🤯 Turns out, my BFF prefers Marvel over DC, my crush actually thinks pineapple belongs on pizza, and my so-called fashionista friend doesn't even like wearing skinny jeans. What is happening?!
+
+It just goes to show, you never really know someone until you see their poll responses on Instagram. 😂 Anyway, it was hilarious seeing everyone's true colors come out, and it made me realize that we all have our own unique quirks and opinions. It's all love though, even if my BFF is a misguided Marvel fan. Can't wait to see what other surprises my friend group has in store! Stay tuned for more juicy updates, fam. 💖 #FriendGroupDrama #SpillingTheTea
