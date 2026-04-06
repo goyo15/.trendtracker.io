@@ -1,0 +1,3 @@
+# Cottagecore Aesthetic (romantic and rural-inspired looks) — 2026-04-06
+
+Hey lovelies, today we’re diving into the dreamy world of Cottagecore Aesthetic! 🌿✨ Picture whimsical floral dresses, cozy knits, and vintage accents straight out of a fairy tale. This trend is all about embracing the romantic and rural-inspired looks that transport you to a quaint countryside cottage. Think flowy skirts, oversized cardigans, and delicate prints that scream soft and cozy vibes. Whether you’re picnicking in a meadow or just lounging in your backyard, Cottagecore style is all about feeling at one with nature. So grab your basket, fill it with wildflowers, and let’s runway-walk our way through the enchanted forest of fashion! 🍃🌸 #CottagecoreChic #RuralRomance #FashionFairyTale

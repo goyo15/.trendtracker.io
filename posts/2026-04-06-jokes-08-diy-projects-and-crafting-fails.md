@@ -1,0 +1,5 @@
+# DIY projects and crafting fails — 2026-04-06
+
+Hey fam, let's talk about DIY projects and crafting fails - because let's be real, we've ALL been there. You start out with major Pinterest inspo, a vision board in mind, and top-notch crafting supplies ready to go. But what happens next? Disaster strikes. Glue everywhere, mismatched colors, and a final product that looks nothing like the picture. And then you ask yourself, "why did I think I could pull this off?"
+
+But you know what? That's the beauty of DIY. It's about trial and error, getting messy, and sometimes failing spectacularly. Embrace those crafting fails, laugh about them, and learn from them. Because the next time you pick up that glue gun, you'll have a bit more wisdom and a lot more determination. So don't let those fails discourage you - they're just stepping stones to your next epic creation. Keep crafting, keep failing, and keep slaying, because that's what DIY is all about, right? 💁🏼‍♀️💖🔨 #CraftingFails #DIYFailures #KeepSlaying
