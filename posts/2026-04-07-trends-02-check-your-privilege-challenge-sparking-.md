@@ -1,0 +1,5 @@
+# Check Your Privilege Challenge sparking conversations around social justice and activism — 2026-04-07
+
+Hey, fam! Let's talk about the Check Your Privilege Challenge that's blowing up our feeds, sparking some real talk about social justice and activism. It's all about recognizing the advantages we have in life based on our identity, like race, gender, or socio-economic status. This challenge ain’t about guilt-tripping anyone, but about raising awareness and stirring up important conversations.
+
+By taking a step back and reflecting on our own privilege, we can better understand the struggles faced by others and work towards a more just society. It's like opening our eyes to the world around us and saying, "Hey, I see you, and I’m here to listen and learn." So, let's keep the convo going, keep challenging ourselves, and keep striving to make the world a more equal and inclusive place for all. Who's with me? 💪🌍 #CheckYourPrivilegeChallenge #SocialJusticeWarriors

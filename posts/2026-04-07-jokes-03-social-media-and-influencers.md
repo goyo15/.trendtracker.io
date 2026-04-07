@@ -1,0 +1,5 @@
+# Social media and influencers — 2026-04-07
+
+Hey guys, let’s talk about social media and influencers - the power duo that basically runs the world these days. We scroll through Instagram feeds like it’s our job, double-tapping on perfectly posed selfies and enviable travel pics. But let’s be real, how much of it is actually real? Influencers promote products and lifestyles that are often far from relatable, leaving us feeling like we’re constantly falling short. 
+
+It’s easy to get caught up in the comparison trap, but here’s the tea - social media is just a highlight reel. Behind the filters and perfectly curated content, influencers are regular people too. It’s important to remember that what you see online isn’t the full picture. It’s cool to admire and be inspired by influencers, but always keep it real and stay true to yourself. Your worth isn’t defined by likes or followers, so don’t sweat it. Remember, you’re the real influencer of your own life. ✨ #StayReal #InfluencerRealityCheck
