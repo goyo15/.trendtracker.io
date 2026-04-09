@@ -1,0 +1,5 @@
+# Preppy style - classic and polished looks with elements like collared shirts, tennis skirts, and loafers — 2026-04-09
+
+Hey hey, preppy pals! 💁‍♀️ Let’s chat about the classic and polished vibes of preppy style that have us all swooning this season. Who doesn’t love a crisp collared shirt paired with a chic tennis skirt and some adorable loafers? It’s like, instant sophistication with a touch of sporty flair. 🎾👟 Whether you’re hitting the halls of high school or strutting your stuff at the mall, rocking a preppy look is always a win-win.
+
+Not gonna lie, there’s something about that clean-cut, put-together aesthetic that just screams confidence and class. Plus, it’s totally versatile - dress it up for a fancy brunch or dress it down for a casual hangout with friends. 👗👟 So next time you’re raiding your closet for outfit inspo, don’t sleep on the preppy pieces! Collared shirts, tennis skirts, loafers… they’re the MVPs of any fashion game. Stay stylish, stay preppy, and keep slaying, babes! 😘✨ #PrepLife #FashionGoals #OOTD
