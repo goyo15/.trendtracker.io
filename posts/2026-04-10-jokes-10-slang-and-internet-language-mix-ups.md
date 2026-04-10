@@ -1,0 +1,5 @@
+# Slang and internet language mix-ups — 2026-04-10
+
+Hey fam, let’s talk about the epic fails that happen when slang and internet language collide. Like, I can’t even with the confusion when someone says “SMH” and you think they’re talking about Shaun Mendes, but really they’re just shaking their head at your drama. And don’t get me started on the whole “F” in the chat thing – like, are we mourning a loss or paying respects to a hot meme?
+
+It’s wild how our generation has created its own language, but it can get so messy when we mix it up with more traditional online speak. One minute you’re using “LOL” in a convo and the next minute your grandma thinks you’re talking about lollipops. It’s a whole struggle keeping up with all the acronyms and slang words, but hey, that’s just part of the fun of being a digital native. Let’s all just vibe with the mix-ups and keep slaying our online communication game. Peace out! ✌️ #SlangStruggles
