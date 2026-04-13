@@ -1,0 +1,5 @@
+# Baked Feta Pasta – A cooking trend where users make a simple pasta dish with baked feta cheese and cherry tomatoes, based on a Finnish recipe that quickly became popular on TikTok. — 2026-04-13
+
+Hey, foodie friends! 🍝🧀 Have you heard about the latest cooking trend taking over TikTok? It’s called Baked Feta Pasta, and let me tell you, it's a game-changer! Picture this: creamy feta cheese baked to perfection until it's all melty and gooey, mixed with juicy cherry tomatoes and tossed with pasta. It's simple but seriously delicious. And get this – it all started from a Finnish recipe that blew up online in no time! 
+
+If you’ve been living under a culinary rock, now’s the time to whip up this trendy dish and impress your taste buds. It’s quick, it’s easy, and it’s the perfect meal to spice up your mundane dinner routine. So grab your apron, gather your ingredients, and get ready to become the next kitchen superstar. Trust me, once you try Baked Feta Pasta, there's no going back! 🌟🍅 #FoodieFinds #BakedFetaPasta #TikTokTrend
