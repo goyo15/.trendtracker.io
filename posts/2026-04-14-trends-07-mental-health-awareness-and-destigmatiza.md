@@ -1,0 +1,5 @@
+# Mental health awareness and destigmatization — 2026-04-14
+
+Hey there, squad! Let's talk about something super important today - mental health awareness and destigmatization. Why is it still so taboo to talk openly about mental health struggles in 2021? It's time to break down those barriers and start having real conversations. Your mental health is just as important as your physical health, so why should it be swept under the rug?
+
+Let's normalize seeking help when we need it and supporting each other through those tough times. It's okay to not be okay, and it's even more okay to talk about it. Mental health struggles are nothing to be ashamed of, and it's about time we all start treating them with the same seriousness as physical illnesses. Be an advocate, be a friend, and be open-minded. Let's create a world where mental health is just as important as any other aspect of our well-being. Stay strong, stay positive, and always remember, you're never alone in your struggles. We're in this together!✌️#EndTheStigma #MentalHealthMatters

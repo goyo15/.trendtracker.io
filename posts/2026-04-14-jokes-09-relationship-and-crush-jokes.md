@@ -1,0 +1,5 @@
+# Relationship and crush jokes — 2026-04-14
+
+Hey friends, let's talk about relationship and crush jokes - the ultimate combo of humor and heartache! Who hasn't laughed at a meme about texting your crush only to get left on read? Or joked with your BFF about your mom asking if that cute classmate is your "special friend"? We love to make light of the awkwardness and rollercoaster of emotions that come with having a crush or being in a relationship.
+
+But let's remember, jokes aside, these feelings are real and valid. It's important to be kind and respectful, whether you're poking fun or sharing a laugh. So go ahead, meme away and roast your friends for their cheesy pickup lines, but always remember the golden rule: Treat others the way you want to be treated, even when the joke's on you. Keep laughing, keep flirting, and above all, keep it real! Catch you on the flip side ✌️ #CrushJokes #RelationshipGoals #JustTeenThings

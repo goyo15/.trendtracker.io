@@ -1,0 +1,5 @@
+# Euphoria-Inspired Makeup - Bold and colorful makeup looks, influenced by the hit TV show Euphoria, with glitter, rhinestones, and neon hues. — 2026-04-14
+
+Hey glam squad! 💫✨ Obsessed with the edgy makeup looks on Euphoria? Same here! Let’s talk about the magic of Euphoria-inspired makeup - think bold, fierce, and totally out-of-this-world vibes. 🌈💄 From glitter galore to neon hues that pop, this trend pushes boundaries and lets you unleash your inner makeup artist. 💁‍♀️💄✨
+
+Get ready to play with rhinestones, shimmer shadows, and electric colors - because in the world of Euphoria makeup, more is more! Channel your creativity and rock a look that screams confidence and individuality. 🌟💋💎 Whether you’re going full glam or just adding a touch of sparkle, embrace the opportunity to express yourself through makeup. 🌺💫 Let’s take a cue from our Euphoria faves and shine bright like the glam queens we are! 💋💄✨ #EuphoriaInspiredMakeup #GlowUpGoals 💖🔥
