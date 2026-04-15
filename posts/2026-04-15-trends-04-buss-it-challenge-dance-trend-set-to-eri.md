@@ -1,0 +1,5 @@
+# "Buss It" challenge – Dance trend set to Erica Banks' song "Buss It" — 2026-04-15
+
+Hey fam, have y’all seen the Buss It challenge taking over TikTok and Instagram? If you haven’t, you’re missing out on a serious dance craze! It’s all about transforming from ‘cute’ to ‘fierce’ in a hot sec. The deal is, you start off low-key, rocking your most chill outfit to the beat of Erica Banks’ banger “Buss It” and then BAM, drop down into a full-on twerk sesh. It’s a vibe, trust me.
+
+But let's keep it real, this challenge isn’t just about busting a move. It’s about celebration; real talk, it’s about embracing your confidence and slaying the game. So, throw on your fave fit, turn up the volume, and show the world what you’re made of! Let’s keep shining, keep dancing, and keep spreading those positive vibes. #BussItChallenge for the win! ✨🔥💃🏽 #DanceTrend #EricaBanks #BussIt
