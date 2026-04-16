@@ -1,0 +1,5 @@
+# Silhouette challenge - A social media challenge involving users posing in a doorway before transitioning to a silhouette against a red background, often set to the song "Put Your Head on My Shoulder" by Paul Anka. — 2026-04-16
+
+Hey, squad! Let’s chat about the latest social media craze - the Silhouette Challenge! 🌟 This challenge is all about embracing your seductive side by starting in a doorway and then bam, turning into a silhouette against a sultry red background. And the cherry on top? Grooving to the smooth vibes of "Put Your Head on My Shoulder" by Paul Anka. 💃🎶
+
+Now, it’s not just about looking fierce and feeling confident, it’s also about showcasing your creativity and having fun with filters and lighting. So, grab your bestie, strike a pose, and unleash your inner supermodel! But remember, stay safe online and only share what you’re comfortable with. Let’s slay the Silhouette Challenge together and show the world what we’ve got! 👯‍♀️💋 #SilhouetteChallenge #ConfidentAndSassy
