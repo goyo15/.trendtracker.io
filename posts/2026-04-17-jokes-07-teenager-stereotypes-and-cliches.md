@@ -1,0 +1,5 @@
+# Teenager stereotypes and cliches — 2026-04-17
+
+Yo, let’s talk about these tired old stereotypes they keep trying to stick on us teenagers. Like, seriously, not all of us are lazy, self-absorbed drama queens who are glued to our phones 24/7. Newsflash: we’re a diverse bunch with passions, ambitions, and brains that are bigger than the latest TikTok trend.
+
+Sure, some of us might love a good Netflix binge or have a complicated relationship with our alarm clocks, but that doesn’t define us. We’re artists, athletes, activists, and everything in between. So, let’s ditch the cliches and start seeing each other for who we really are: a generation with the power to change the world if we’re not too busy rolling our eyes at outdated stereotypes. Let’s break free from the labels and show the world what teen power really looks like. Peace out.
