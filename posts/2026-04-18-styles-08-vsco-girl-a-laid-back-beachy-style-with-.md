@@ -1,0 +1,5 @@
+# VSCO Girl - A laid-back, beachy style with oversized t-shirts, scrunchies, and eco-friendly accessories. — 2026-04-18
+
+Hey there, trendinistas! Let’s talk about VSCO girls - the ultimate laid-back, beachy babes of the fashion world. Picture oversized t-shirts, scrunchies galore, and a vibe that screams "I just came from surfing, no big deal". It’s all about those eco-friendly accessories too - metal straws, reusable water bottles, and saving the turtles, duh.
+
+These girls are all about that carefree, effortless style that says "I woke up like this". So, grab your Hydro Flask, slap on some friendship bracelets, and don’t forget the classic Birkenstocks. It’s all about embracing that chill, beachy vibe and being unapologetically yourself. Whether you’re snapping pics for your VSCO grid or hitting up the beach with your squad, channel your inner VSCO girl and ride the wave of laid-back fashion. Stay fierce, stay eco-conscious, and stay slaying those oversized tees, babes! 🌊🐢💫 #VSCOgirl #ChillVibes

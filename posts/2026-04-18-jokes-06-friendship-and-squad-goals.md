@@ -1,0 +1,5 @@
+# Friendship and squad goals — 2026-04-18
+
+Hey squad! Let's talk about friendship and squad goals, because let's face it, finding your tribe is everything. Surrounding yourself with positive vibes and good energy is key to living your best life. Your squad should lift you up, make you laugh till your stomach hurts, and be there for you through thick and thin. Real friends don't just give you likes on Instagram, they're the ones who stick by your side when life gets tough.
+
+Forget about trying to fit in with a certain group or changing yourself to be liked - true friends accept you for who you are. It's all about quality over quantity, so don't be afraid to cut ties with toxic friendships. Trust me, it's better to have a small but solid squad than a large group of fake friends. So go out there, support each other, and make memories that will last a lifetime. Squad goals, am I right? Stay fierce, stay real, and never settle for anything less than amazing. Peace out! ✌️ #SquadGoals #FriendshipGoals
