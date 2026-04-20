@@ -1,0 +1,5 @@
+# Cottagecore - Romantic and quaint styles featuring floral prints, ruffles, and peasant blouses, reflecting a back-to-nature aesthetic. — 2026-04-20
+
+Hey lovelies, let’s chat about the latest trend taking over the fashion scene - Cottagecore! 🌸🌿 From flowy floral prints to delicate ruffles and charming peasant blouses, this aesthetic is all about embracing the romantic and quaint side of life. Picture yourself wandering through a sunlit meadow or sipping tea in a cozy cottage in the countryside - that’s the vibe we’re going for here. 😍🏡
+
+Cottagecore is all about getting back to nature and finding beauty in simplicity. It’s like stepping into a Jane Austen novel but with a modern twist. So, if you’re into soft pastels, vintage vibes, and dreamy landscapes, this trend is calling your name! Embrace your inner flower child and let the Cottagecore aesthetic transport you to a world of whimsy and charm. 💐✨ #Cottagecore #NatureVibes #WhimsicalFashion
