@@ -1,0 +1,5 @@
+# Celebrity relationships and breakups — 2026-04-21
+
+Hey, fam! Let’s spill the tea and dish about celebrity relationships and breakups because, let’s be real, it’s basically a sport at this point. 🌟💔 Whether it’s a power couple making us believe in love or a dramatic split that rocks our world, celeb love lives are always front and center. From the “are they or aren’t they?” speculation to the messy social media drama, we can’t get enough of the rollercoaster ride that is Hollywood romance.
+
+But hey, let’s be real for a sec. While it’s fun to follow along, it’s important to remember these are real people with real feelings. It’s cool to ship your faves, but let’s keep it respectful, ya feel me? At the end of the day, whether they’re breaking up or making up, celebrities are just trying to navigate love in the public eye. So, let’s send good vibes their way and maybe take a page from their book on handling the highs and lows of relationships with grace and style. 🌟✨ #CelebLoveDrama #HandleItLikeAStar
