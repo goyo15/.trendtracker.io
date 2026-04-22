@@ -1,0 +1,5 @@
+# Celebrity breakups and relationship rumors — 2026-04-22
+
+Hey fam, let’s dish on the latest celeb breakup drama and juicy relationship rumors going around! 🌟💔 Whether it’s power couple drama or unexpected splits, the gossip mill is in overdrive lately. Are they really “consciously uncoupling” or just unfollowing each other on the ‘gram? 🕵️‍♀️ And don’t even get me started on those rumored hookups and secret love triangles. 😱 It’s like a soap opera, but way more glam and with better outfits. 💅🏼
+
+Who’s your fave ship that’s hit rocky waters, or which celeb couple do you think is just a PR stunt waiting to implode? 😬 Let’s spill the tea and support each other through these rough waters of Tinseltown love lives. Remember, it’s all fun and games until it’s your OTP calling it quits. Stay tuned for more updates and scandalous details, because you know Hollywood love is always complicated and oh-so-entertaining! 💋 #CelebGossip #BreakupCentral #RumorsExposed

@@ -1,0 +1,5 @@
+# Feuds between popular TikTok houses — 2026-04-22
+
+Hey fam, let’s talk about the drama going down between the top TikTok houses! From the Hype House to the Sway House, it seems like there’s always some beef brewing. 🍵💥 Whether it’s shade being thrown in diss tracks or sneaky subtweeting, these influencers sure know how to keep us entertained. But seriously, can’t we all just get along for the sake of good content?
+
+I get it, competition can be fierce when everyone is vying for those views and likes. But let’s remember, at the end of the day, we’re all just trying to have fun and make some cool videos. So, let’s spread positivity, support each other’s hustle, and leave the drama for the TikTok skits. Who’s with me? 💪✨ Let’s show the world that we can build each other up instead of tearing each other down. Stay fab, stay fierce, and keep spreading those good vibes! #UnityOverFeuds 💖✌️🌟📱

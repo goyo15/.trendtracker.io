@@ -1,0 +1,5 @@
+# Slang and Gen Z language — 2026-04-22
+
+Hey fam, let's talk about slang and Gen Z language! We've got a whole dictionary of words and phrases that make adults go, "Huh?!" From "sksksk" to "yeet" to "stan," we've got our own way of communicating that's constantly evolving. And don't even get me started on our use of emojis and memes - it's a whole new language in itself!
+
+But here's the thing - our slang is more than just fun words; it's a way for us to connect and express ourselves in a world that can be pretty chaotic. It's how we bond with our squad, show our sense of humor, and navigate our online world. So next time someone gives you a side-eye for using Gen Z lingo, just remember that we're creating our own culture and language that's all about unity and self-expression. Peace out, fam! Stay lit and keep slaying with your words. 💯🔥 #GenZLanguage #SlangGoals
