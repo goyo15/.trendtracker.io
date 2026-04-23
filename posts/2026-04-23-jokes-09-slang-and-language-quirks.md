@@ -1,0 +1,3 @@
+# Slang and language quirks — 2026-04-23
+
+Hey fam! Let’s spill the tea on slang and language quirks – the spice of our generation! 🌶️ From “sksksk” to “yeet”, our vocab is straight up iconic. But let’s talk about those quirky phrases that only we get, like “I oop” or “periodt”. It’s like our secret code, y’know? And don’t even get me started on the way we remix words like “lowkey” and “lit” to fit our vibe. We have the power to create new words and meanings, and it’s lit! But, like, let’s not forget the OG slang from past generations – they paved the way for our sick linguistics. So, whether you’re a “VSCO girl” or a “stan”, embrace your language quirks and let your words pop off! Stay slayin’ with that fleeky lingo, fam! 🔥💅
