@@ -1,0 +1,5 @@
+# "VSCO Girl Style" - The VSCO girl trend continues with users showcasing the laid-back and environmentally conscious fashion style inspired by the VSCO photo editing app. — 2026-04-24
+
+Hey fam, let’s talk about the VSCO Girl trend that’s taking over our feeds! 🌿📷 Rocking those oversized tees, scrunchies, and Hydro Flasks like it’s nobody’s business – that’s the VSCO girl vibe we all know and love. This laid-back style isn’t just about looking cute, it’s all about embracing that environmentally conscious lifestyle too. Sksksk and I oop, that means reusable straws, saving the turtles, and being kind to Mother Earth. 🐢💚 
+
+So, next time you’re getting ready for a beach day or just chilling with your squad, channel your inner VSCO girl and spread those good vibes. Don’t forget your shell necklace and Birkenstocks! Being a VSCO girl isn’t just a look, it’s a whole mood. Let’s keep those positive vibes flowing and those cameras clicking, because the VSCO girl trend isn’t going anywhere. Keep it real, keep it chill, and stay fierce, my VSCO babes! 💁🏼‍♀️✨ #VSCOgirl #savetheturtles
