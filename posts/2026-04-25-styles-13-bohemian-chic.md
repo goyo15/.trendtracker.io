@@ -1,0 +1,5 @@
+# Bohemian chic — 2026-04-25
+
+Hey fashionistas! 🌟 Let’s talk about Bohemian chic, the ultimate vibe for all the free spirits out there! Think flowy dresses, fringe details, and statement accessories that scream carefree cool. Whether you’re channeling your inner flower child with layers of vintage jewels or rocking a crochet top with denim cutoffs, Bohemian chic is a vibe that never goes out of style. 
+
+Mix and match patterns, textures, and colors to create a look that’s uniquely you. And don’t forget the essential accessories - floppy hats, oversized sunglasses, and ankle boots are a must. Embrace your inner wild child and let your fashion sense run free with Bohemian chic. It’s all about expressing your individuality and feeling fabulous while doing it. So throw on those flowy layers and let your inner boho babe shine bright! ✨ #BohemianChic #FreeSpirits #FashionForward

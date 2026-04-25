@@ -1,0 +1,5 @@
+# School life - relatable humor about classes, teachers, homework, and exams — 2026-04-25
+
+Hey fam, let’s spill the tea on school life – the struggle is real! Classes be like a rollercoaster of emotions, one minute you’re bored outta your mind, the next you’re low-key hyped about learning something new. Teachers got jokes too, turning simple math problems into a riddle from another dimension. Homework? More like home-kill-my-vibe-am-I-right? And don’t get me started on exams – the ultimate stress fest where you’re expected to know everything from Shakespeare to the Pythagorean theorem. 
+
+But hey, we’re all in this together, feeling the same struggles and cracking up over the same lame jokes. So keep it real, keep it chill, and remember that it’s all part of the high school ride. And who knows, maybe one day we’ll look back and laugh at the chaos that was our school days. Stay lit, stay woke, and keep slaying those textbooks, fam! Peace out.
