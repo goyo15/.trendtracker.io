@@ -1,0 +1,5 @@
+# Viral challenges or pranks — 2026-04-26
+
+Hey, fam! Let's talk viral challenges and pranks - the good, the bad, and the downright dangerous. I'm all for a good laugh, but some of these trends seriously cross the line. Remember the cinnamon challenge that had people choking on a tablespoon of spice? Yeah, not fun. And don't even get me started on the Tide Pod challenge - like, why would anyone think eating laundry detergent is a good idea?
+
+Sure, some pranks can be harmless and hilarious, but there's a fine line between a joke and causing harm. Let's all use our brains and think twice before jumping on the latest viral bandwagon. It's cool to be in the loop, but it's even cooler to stay safe and smart. So next time you see a questionable challenge or prank making the rounds, think before you participate. Let's keep it real, keep it fun, and most importantly, keep it safe. Peace out! ✌️ #StaySmartStaySafe

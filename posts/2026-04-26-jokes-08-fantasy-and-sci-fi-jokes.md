@@ -1,0 +1,5 @@
+# Fantasy and sci-fi jokes — 2026-04-26
+
+Hey fellow nerds and geeks! Let’s chat about something out of this world – fantasy and sci-fi jokes! 🚀✨ Whether you’re a Tolkien fan or a Trekkie, there’s always room for a good laugh in the realm of make-believe. Who else can relate to cracking up at a Hobbit walking into a bar and asking for 11 drinks? 😂 And how about the classic “Why was the computer cold?” punchline – because it left its Windows open! 🖥️🤣
+
+These jokes may be light-years away from reality, but they sure know how to transport us to another dimension of hilarity. So, next time you’re feeling down in the dumps, just remember – a good fantasy or sci-fi joke is like finding a rare enchanted treasure in a vast galaxy of humor. Keep the laughter warp-speeding, my fellow jokesters! 🌌🤓 #NerdHumor #FantasyJokes #SciFiLaughs
