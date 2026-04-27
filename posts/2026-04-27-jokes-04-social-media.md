@@ -1,0 +1,5 @@
+# Social media — 2026-04-27
+
+Hey there, social media fiends! Can we talk about the love-hate relationship we have with our screens? I mean, social media can be a total blast, am I right? Connecting with friends, finding inspo, and keeping up with the latest tea. But let’s be real for a sec - the pressure to look perfect and keep up appearances is seriously draining. The comparison game is exhausting, and FOMO is a total mood killer. And don’t even get me started on cyberbullying - ain’t nobody got time for that negativity. 
+
+So, here’s the tea: Use social media wisely, fam. It’s a powerful tool, but it’s not the be-all and end-all of life. Remember, likes don’t define your worth, and offline life is just as lit, if not more. Keep it real, stay true to yourself, and use those filters sparingly. Let’s slay the social media game without losing our minds, deal? Stay fabulous, loves! 💁‍♀️📱✨ #RealTalk #SocialMediaStruggles

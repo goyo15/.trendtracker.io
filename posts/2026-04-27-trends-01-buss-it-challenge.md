@@ -1,0 +1,3 @@
+# Buss It Challenge — 2026-04-27
+
+Hey, fam! Let's talk about the latest TikTok craze that's got us all shook - the Buss It Challenge! 🍑💃 If you haven't seen it yet, where have you been?! This challenge is all about showing off that glow-up and courage on camera. First, you start off looking all comfy and low-key in your PJs, then when the beat drops, bam! You transform into a total glam queen or king, busting out your best moves to Erica Banks' "Buss It" track. It's all about confidence, self-love, and embracing your inner baddie. So, grab your crew, pick out your fiercest outfit, and get ready to slay the game! Can't wait to see y'all bring the heat and own that glow-up! 🔥 #BussItChallenge #GlowUp #TikTokTrends

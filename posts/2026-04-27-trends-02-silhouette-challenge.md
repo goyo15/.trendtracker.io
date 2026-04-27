@@ -1,0 +1,5 @@
+# Silhouette Challenge — 2026-04-27
+
+Hey fam! Let’s talk about the latest TikTok craze - the Silhouette Challenge! 🌟 This challenge has everyone feeling like a superstar with its sultry vibes and catchy tunes. The concept is simple - participants begin in a silhouette with just a red filter, then they strike a pose and suddenly reveal their full selves in a glowing light. It’s all about embracing your confidence and feeling fierce! 💃🔥
+
+But hey, a quick heads up - make sure you’re comfortable with what you’re sharing online, and always remember to stay safe. With the internet being what it is, it’s important to protect your privacy and think twice before hitting that upload button. So, rock that silhouette, slay the challenge, and have fun, but always keep your boundaries in check. Stay fabulous, my peeps! ✨ #SilhouetteChallenge #ConfidenceIsKey #StaySafeOnline
