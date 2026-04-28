@@ -1,0 +1,5 @@
+# Whipped coffee Dalgona trend — 2026-04-28
+
+Hey fam, have you hopped on the whipped coffee Dalgona trend yet? 🤩 This creamy, dreamy concoction is all the rage on TikTok and Insta, and let me tell you, it’s worth the hype! 🙌🏼 Just whip equal parts instant coffee, sugar, and hot water until it’s fluffy and frothy, then dollop it on top of your favorite milk (I prefer oat milk, but you do you! 💁🏻‍♀️). 
+
+Not only does Dalgona coffee look super fancy and aesthetic, but it tastes like a sweet, caffeinated cloud in a cup! ☁️✨ Perfect for a cozy day at home, a study session pick-me-up, or a cute Insta-worthy drink to show off to your followers. So, grab your whisk, get whipping, and join the Dalgona coffee craze! Just a warning though, once you try it, you’ll be addicted. 🤪☕️ #DalgonaDreams #WhippedCoffeeWonderful

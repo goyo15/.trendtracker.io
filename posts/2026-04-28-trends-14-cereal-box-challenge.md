@@ -1,0 +1,5 @@
+# Cereal box challenge — 2026-04-28
+
+Hey, fellow teens! Have you heard about the latest trend taking over TikTok? It’s called the Cereal Box Challenge, and let me tell you, it’s a whole lot of fun! The challenge is simple: try to pick up a cereal box from the ground using only your mouth, without using your hands or touching the box with any part of your body except your mouth. Sounds easy, right? Think again!
+
+I tried this challenge with my friends and let me tell you, it was hilarious to watch each other struggle to get that box in our mouths. Some of us got it on the first try, while others... let’s just say, it took a few attempts. But that’s what makes it so entertaining! So grab a box of your favorite cereal, gather your friends, and give the Cereal Box Challenge a go. Just make sure to have some paper towels on hand for any spills – trust me, you’ll need them! Let me know how it goes for you in the comments below. Happy challenging! #CerealBoxChallenge 🥣🤪✨

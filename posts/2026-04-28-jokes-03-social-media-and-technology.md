@@ -1,0 +1,5 @@
+# Social Media and Technology — 2026-04-28
+
+Hey, fam! Let’s talk about the love-hate relationship we all have with social media and technology. I mean, on one hand, they keep us connected 24/7, allowing us to stay in touch with our squad, share inspo-worthy pics, and stay up-to-date on the latest tea. But, let’s keep it real, they also have us glued to our screens, comparing our lives to filtered versions of others, and can seriously mess with our mental health.
+
+We gotta remember to take breaks, unplug, and prioritize real-life connections. It’s all about finding that balance, y’all. Use tech for good – learn new skills, raise awareness about important issues, and spread positivity. And hey, don’t forget to live in the moment, savor those IRL experiences, and remember that likes and followers don’t define your worth. Stay woke, stay kind, and keep slaying both online and offline.✌️ #TechTalk #SocialMediaRealness #StayConnectedButStayHuman

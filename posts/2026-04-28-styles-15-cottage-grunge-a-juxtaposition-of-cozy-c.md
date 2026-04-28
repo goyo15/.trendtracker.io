@@ -1,0 +1,5 @@
+# Cottage Grunge - A juxtaposition of cozy cottagecore elements with edgy grunge influences, combining florals with combat boots, lace with leather, for a unique teen fashion statement. — 2026-04-28
+
+Hey, fam! Let's talk about the latest trend shaking up the fashion world: Cottage Grunge! 🌸🖤 Imagine the perfect mix of sweet cottagecore vibes with a rebellious edge. We're talking florals paired with combat boots, lace with leather - a total power move. It's like your fave fairytale cottage got a hardcore makeover, and we are here for it! 💁‍♀️🔥
+
+Rocking Cottage Grunge is all about balancing soft and tough elements to create a one-of-a-kind style that screams confidence. Embrace your inner flower child while channeling your inner rockstar at the same time. So, grab those flowy dresses and layer them with a leather jacket, throw on some combat boots, and you're ready to slay all day, every day. This trend is all about being unapologetically YOU, so go ahead and mix those contrasting styles like a boss. Cottage Grunge - because why choose between soft and edgy when you can have both? 💫✨ #CottageGrunge #FashionForward
