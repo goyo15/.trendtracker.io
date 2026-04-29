@@ -1,0 +1,5 @@
+# Cottagecore — 2026-04-29
+
+Hey everyone, have you heard of this aesthetic trend called Cottagecore? 🌿 It's all about embracing a cozy, rustic vibe that is giving off major fairy tale cottage energy. Think flowy dresses, vintage knits, flower crowns, and lots of floral patterns. Picture picnics in meadows, sipping tea on a front porch swing, and baking fresh goodies in a quaint kitchen. Cottagecore is like stepping into a storybook world where nature and simplicity take center stage.
+
+It's a vibe that's perfect for those of us who dream of escaping the hustle and bustle of everyday life and immersing ourselves in a slower, more peaceful way of living. Whether you're into gardening, DIY crafts, or just love the idea of living a whimsical life in the countryside, Cottagecore is definitely a trend worth checking out. So grab your basket, put on your flowy dress, and let's escape to our own little cottagecore paradise! 🌻 #CottagecoreDreams #NatureVibes #FairyTaleLife

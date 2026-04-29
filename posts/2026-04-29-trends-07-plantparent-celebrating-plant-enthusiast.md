@@ -1,0 +1,5 @@
+# #PlantParent - Celebrating plant enthusiasts sharing tips, trends, and their plant collections. — 2026-04-29
+
+Hey plant pals! 🌿 Are you part of the growing #PlantParent community? It’s time to celebrate our love for all things leafy and green! Whether you’re a seasoned plant enthusiast or just starting out, there’s something for everyone in this vibrant world of plant-loving folks. From tips on how to propagate your babies to the latest trends in plant decor, we’ve got you covered. 
+
+Join us in sharing our plant collections, swapping care advice, and inspiring each other to grow our botanical families. Forget the drama, let’s focus on blossoming together and nurturing our little green buddies. So grab your watering cans, potting soil, and your favorite plant babies, because this community is all about spreading love and positivity through the power of plants. Let’s root for each other and keep growing stronger every day! 🌱💚 #PlantParent forever!
