@@ -1,0 +1,5 @@
+# VSCO Girl - Known for its laid-back, beachy aesthetic with items like scrunchies, oversized shirts, and hydro flasks. — 2026-05-03
+
+Hey lovelies! Let's chat about the VSCO Girl trend that's taking over our feeds faster than you can say, "save the turtles." 🐢💕 Known for their chill, beachy vibes and love for all things eco-friendly, these gals are rockin' scrunchies, oversized shirts, and, of course, their signature hydro flasks. 🌊🌺 But let's not forget the essential items like Birkenstocks, shell necklaces, and friendship bracelets that complete the look. 🐚✨
+
+Sure, some may say it's just a trend, but I say it's a lifestyle! Embracing nature, spreading positivity, and staying true to yourself - that's what being a VSCO Girl is all about. So grab your camera, head to the beach, and let your carefree spirit shine! 📷🌴 And remember, it's not just about the aesthetic, it's about the mindset. Stay cool, stay kind, and stay hydrated, my VSCO babes! 💖✌️ #SaveTheTurtles #VibinWithVSCOGirl

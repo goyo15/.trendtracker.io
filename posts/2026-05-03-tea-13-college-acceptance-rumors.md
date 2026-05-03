@@ -1,0 +1,5 @@
+# College acceptance rumors — 2026-05-03
+
+Hey fam, let’s talk about the latest gossip swirling around town - college acceptance rumors. It’s crazy how word spreads like wildfire when it comes to who got into their dream school or got rejected. Listen up, peeps, don’t believe everything you hear! Rumors are just whispers in the wind, and sometimes they’re as accurate as a horoscope. 
+
+Sure, it’s natural to be curious about where your friends are going next year, but let’s not get caught up in all the drama. Remember, we all have our own unique paths and futures, so don’t stress if you haven’t heard back from your dream school yet. Your worth isn’t determined by a college admissions letter, okay? Stay focused on your own journey, keep grinding, and trust that the right school will come your way. Let’s support each other through this nerve-wracking time, rather than getting caught up in the rumor mill. Stay positive, stay real, and remember, you got this! #CollegeAcceptanceRumors #StayTrueToListeningToYourself
