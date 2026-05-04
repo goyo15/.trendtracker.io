@@ -1,0 +1,5 @@
+# Grunge revival - a nod to '90s alternative fashion with plaid, band tees, and combat boots — 2026-05-04
+
+Hey, Gen Z trendsetters! Guess what’s making a killer comeback? That’s right, it’s the Grunge Revival! We’re talking about rocking those '90s vibes with a modern twist - think plaid skirts, oversized band tees, and chunky combat boots. Channel your inner Kurt Cobain or Courtney Love and bring that rebellious edge to your wardrobe.
+
+Mix and match different textures and layers to create a look that’s effortlessly cool and completely you. Whether you’re heading to a concert, hanging out with friends, or just feeling like a total badass, the grunge revival trend has got you covered. So dust off those flannel shirts, dig out your favorite ripped jeans, and embrace the gloriously gritty style of the '90s. It’s time to slay in plaid and show the world that grunge never goes out of style! #GrungeRevival #90sFashion #AlternativeForever ✌️🖤.
