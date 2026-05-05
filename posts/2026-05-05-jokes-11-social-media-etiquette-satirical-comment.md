@@ -1,0 +1,7 @@
+# Social Media Etiquette - Satirical commentary on social media behavior, influencer culture, and the obsession with likes and followers. — 2026-05-05
+
+Hey fellow social media addicts! Let's talk about everyone's favorite obsession - likes and followers. It's like a virtual popularity contest where the prize is validation from strangers. We're all guilty of refreshing our notifications a million times a day just to see those numbers go up, am I right? But seriously, can we take a moment to reflect on how ridiculous that is?
+
+Influencer culture has turned into a circus act where we all try to outdo each other with sponsored posts and #sponsored hashtags. Let's not forget the perfectly curated feeds that make us mere mortals question our own existence. It's like we're all living in a Truman Show version of our lives, constantly performing for an invisible audience.
+
+So here's the tea - let's all take a step back, remember that social media is just a highlight reel, and focus on being genuine and kind humans offline. Likes and followers may come and go, but real connections and relationships last a lifetime. Let's break the mold and be unapologetically ourselves, likes be damned. Peace out, social media warriors! #AuthenticityOverLikes 
