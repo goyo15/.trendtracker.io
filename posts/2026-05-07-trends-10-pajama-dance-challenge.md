@@ -1,0 +1,5 @@
+# "Pajama Dance Challenge" — 2026-05-07
+
+Hey, fam! So, have you heard about the latest trend taking over TikTok? It’s called the "Pajama Dance Challenge" and let me tell you, it’s lit! Basically, you throw on your comfiest PJs, blast your favorite bop, and bust out your best dance moves. It’s all about having a blast and showing off your killer dance skills from the comfort of your bedroom. Plus, who doesn’t love an excuse to stay in their PJs all day, am I right? Trust me, this challenge is a mood booster and a total vibe.
+
+So, grab your squad, film your epic dance routine, and don’t forget to tag me so I can hype you up! Let’s spread some positive energy and show the world that we can slay in our PJs just as hard as we do in our going-out fits. Now, who’s ready to get their groove on? Let’s do this, fam! 🎶💃🕺 #PajamaDanceChallenge #ComfyAndConfident

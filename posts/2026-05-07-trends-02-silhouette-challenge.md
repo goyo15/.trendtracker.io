@@ -1,0 +1,5 @@
+# "Silhouette Challenge" — 2026-05-07
+
+Hey, fam! Let’s talk about the latest trend taking social media by storm - the Silhouette Challenge! 🌟 This challenge is all about embracing your body and feeling confident in your own skin. All you need to do is lip sync to Paul Anka’s “Put Your Head on My Shoulder” before transitioning to a sexy silhouette in a doorway. It’s all about empowerment and celebrating your beautiful self! 💃🔥
+
+But a quick word of caution: make sure you protect your privacy by being careful with the editing of your silhouette video to avoid any unwanted exposure. Let’s keep it classy and remember that it’s all about having fun and feeling confident. So, strike a pose, show off your silhouette, and let your inner glow shine through! Who’s ready to take on the Silhouette Challenge and slay the game? 💁‍♀️✨ #SilhouetteChallenge #ConfidenceIsKey
