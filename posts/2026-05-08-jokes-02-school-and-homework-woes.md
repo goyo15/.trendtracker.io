@@ -1,0 +1,5 @@
+# School and homework woes — 2026-05-08
+
+Ugh, can we talk about the never-ending cycle of school and homework woes? It feels like as soon as one assignment is done, five more pop up out of nowhere. Teachers must get a thrill out of drowning us in work, am I right? And don’t even get me started on the stress of test days – my brain turns to mush trying to remember all the useless info we’re forced to cram in.
+
+I swear, if I had a dollar for every time I’ve procrastinated on homework, I’d be rolling in cash. Netflix, social media, snacks – anything is more appealing than actually doing what we’re supposed to. But, as much as we complain, we still somehow manage to scrape by and get through it all. Maybe one day we’ll look back and laugh at how worked up we got over a stupid project. Or maybe not. Bring on the caffeine and tears, because school never ends.
