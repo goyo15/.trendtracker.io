@@ -1,0 +1,3 @@
+# Relationships and Crushes — 2026-05-09
+
+Hey squad, let’s talk relationships and crushes! 💖 Crushes can be thrilling and nerve-wracking, but remember, you’re a whole vibe on your own! When it comes to relationships, communication is key. No mind-reading vibes allowed. Be upfront about your feels and set those boundaries. Ain’t nobody got time for guessing games! And remember, it’s cool to be single too. Independence is bomb. So, don’t settle for anyone who doesn’t vibe with your energy. Your worth is not determined by a crush or relationship status. And hey, it’s totally normal if things don’t work out. It’s all part of the journey. Keep it real, keep it authentic, and above all, keep it fun! Your girl is out here rooting for you! #CrushingIt 💅🏼💫🔥
