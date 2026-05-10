@@ -1,0 +1,5 @@
+# Viral TikTok challenge that has caused controversy or injury — 2026-05-10
+
+Hey fam, we need to talk about the latest viral TikTok challenge that’s causing major drama and even sending some peeps to the ER. This challenge, let’s call it the #BlindfoldBlunder, involves doing everyday tasks while blindfolded and filming it for the gram. Sounds fun, right? WRONG. It’s all fun and games until someone trips over a chair or walks into a wall. And don’t even get me started on the kitchen disasters - ain’t nobody want to burn the house down trying to cook with a blindfold on.
+
+So, let’s keep it real, y’all. Let’s be smart about the challenges we participate in and not put our safety at risk for a few likes. Remember, it’s not worth it if it could land you in the hospital. Stay safe and stay savvy, my friends. And remember, not all trends are worth following. #StaySafe #ThinkBeforeYouTikTok 💁‍♀️✌️

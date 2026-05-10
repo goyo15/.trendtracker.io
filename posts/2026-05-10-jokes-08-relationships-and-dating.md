@@ -1,0 +1,5 @@
+# Relationships and dating — 2026-05-10
+
+Hey fam, let’s talk relationships and dating – the ultimate teen rollercoaster ride! 💕 Whether you’re swiping left or right, or crushing from afar, we’ve all been there. It’s all about finding someone who vibes with your energy and adds that extra sparkle to your life. But let’s be real, relationships can be as confusing as that new TikTok dance craze. 
+
+Remember, it’s important to stay true to yourself and not settle for anything less than you deserve. Don’t be afraid to speak your mind and set boundaries. And hey, it’s okay to be single too! You’re a boss all on your own. So, whether you’re writing love letters or just casually chatting on Snap, remember that the right person will appreciate you for who you are. Love is a journey, not a destination, so enjoy the ride, keep it real, and as always, stay fabulous! ✨ #RelationshipGoals #TeenTalks
