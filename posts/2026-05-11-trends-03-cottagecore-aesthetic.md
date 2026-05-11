@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2026-05-11
+
+Hey, fellow teens! Let’s chat about cottagecore, the ultimate cozy-chic aesthetic taking over our feeds! Picture this: floral dresses, wicker baskets, vintage quilts, and all the grandma vibes you could ever dream of. Cottagecore is like stepping into a fairytale world where picnics in the meadow and baking homemade pies are the norm. I mean, who wouldn’t want to escape to a quaint little cottage in the countryside, right?
+
+Personally, I’m all about the cottagecore vibe - it’s like bringing a touch of whimsy and simplicity into our crazy, fast-paced lives. Whether you’re into thrifted finds, DIY crafts, or just embracing the beauty of nature, cottagecore has a little something for everyone. So, grab your straw hat and let’s frolic through the fields while we still can. Cottagecore is more than just a style, it’s a nostalgic escape to a simpler time that we all crave deep down. Embrace the dreamy aesthetic, my friends, and let’s get lost in the magic of cottagecore together! ✨🌻 #CottagecoreDreams
