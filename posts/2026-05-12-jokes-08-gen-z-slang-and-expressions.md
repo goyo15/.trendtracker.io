@@ -1,0 +1,5 @@
+# Gen Z slang and expressions — 2026-05-12
+
+Hey fam, let’s spill the tea on some lit Gen Z slang and expressions that will have you flexing your vocab game! From “sksksk” to “And I oop-”, we’ve got a whole language that’s straight fire. Need to describe something hilarious? Just hit ‘em with “that’s a whole mood”. And when you’re feeling extra sassy, say “I-” and let the silence speak volumes. Don’t forget to sprinkle in some “yeet” for good measure, because why walk when you can yeet your way into the weekend?
+
+But let's keep it real, not everyone will understand our lingo. And that’s the tea. So, if someone looks confused when you shout “periodt” or “slay queen”, just hit them with a quick “ok, boomer” and keep it moving. Our slang game is constantly evolving, and that’s what makes it so iconic. Stay woke, stay fierce, and keep slaying those Gen Z expressions like the boss you are! Peace out ✌️ #GenZSlang #StaySlaying
