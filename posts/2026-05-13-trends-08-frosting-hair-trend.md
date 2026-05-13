@@ -1,0 +1,5 @@
+# Frosting hair trend — 2026-05-13
+
+Hey my fabulous followers! 🌟 Have you heard about the latest frosting hair trend that’s sweeping the beauty scene? 🌬️💁‍♀️ This sweet style is all about adding delicate, icy blonde highlights to your locks, giving your hair a cool and frosty edge. ❄️✨ Whether you’re a brunette, redhead, or already a blonde bombshell, frosting can take your hair game to the next level. 💇‍♀️🔥
+
+Rocking frosting hair is like sprinkling a touch of winter magic on your mane, creating a look that’s both chic and refreshing. 💙✨ Plus, it’s a fab way to change up your style without committing to a full-on hair color transformation. So, if you’re looking to add some sparkle to your strands this season, why not give the frosting hair trend a try? Trust me, you’ll be feeling like an ice queen in no time! ❄️👑 #FrostingHair #WinterVibes #HairGoals

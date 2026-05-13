@@ -1,0 +1,5 @@
+# VSCO Girl style - Relaxed and beachy fashion inspired by the VSCO app aesthetic, featuring scrunchies, oversized T-shirts, and Birkenstock sandals. — 2026-05-13
+
+Hey everyone! Let’s talk VSCO Girl style - the ultimate vibe for those who are all about that laid-back, beachy aesthetic. Picture this: scrunchies in your hair, oversized T-shirt stealing from your boyfriend's closet, and comfy Birkenstock sandals on your feet. It’s all about embracing that effortless, California-cool look that screams "I'm ready for a day at the beach or a chill hangout with friends." 🌊🌞
+
+The VSCO Girl trend is not just about the clothes, it’s a whole mood. Think reusable water bottles, Hydro Flasks decorated with stickers, and always being eco-conscious. It’s a vibe that’s all about positivity, confidence, and taking life at your own pace. So next time you’re dressing up for a day out, channel your inner VSCO Girl and bring those good vibes wherever you go!✌️💖 #VSCOgirl #BeachyVibes #ChillOutfitGoals

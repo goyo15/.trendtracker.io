@@ -1,0 +1,5 @@
+# Baked Feta Pasta recipe — 2026-05-13
+
+Hey fam! Have you hopped on the latest food trend train and tried the viral Baked Feta Pasta recipe yet? 🚂🧀🍝 Let me tell you, this dish is worth all the hype! It’s basically a flavor explosion in your mouth, with creamy feta, sweet cherry tomatoes, and aromatic garlic all coming together to create a heavenly pasta sauce. And the best part? It’s super easy to make, perfect for those lazy days when you need a quick and delicious meal.
+
+All you need is a block of feta, some cherry tomatoes, garlic, olive oil, and pasta – that’s it! Just bake it all together until the feta is melty and the tomatoes are bursting with flavor, then mix it with your cooked pasta. It’s seriously like a gourmet meal with minimal effort. Trust me, your taste buds will thank you! So grab your ingredients and get cooking, you won’t regret it. #foodie #bakedfetapasta #yum 😋🔥
