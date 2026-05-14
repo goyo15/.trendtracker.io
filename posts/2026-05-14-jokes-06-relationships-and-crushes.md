@@ -1,0 +1,5 @@
+# Relationships and Crushes — 2026-05-14
+
+Yo, what's up, peeps? Let's talk relationships and crushes, because let's be real, it's basically the teen rollercoaster of emotions. Crushes hit you like a ton of bricks, right? Your heart races when you see them, you can't form a coherent sentence - it's a mess. But here’s the thing: crushes are like a sneak peek into what could be, not a guarantee of happily ever after. Trust me, been there, done that.
+
+And relationships? Well, they're a whole other ball game. Communication is key, respect is a non-negotiable, and your individuality should never be compromised. Remember, you're a whole vibe on your own, and anyone who can't appreciate that isn't worth your time. So, enjoy the crushes, navigate the relationships with style, and always remember: you're a boss in your own right. Peace out, fam!
