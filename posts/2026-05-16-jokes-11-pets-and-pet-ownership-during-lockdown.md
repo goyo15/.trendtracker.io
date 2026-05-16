@@ -1,0 +1,5 @@
+# Pets and pet ownership during lockdown — 2026-05-16
+
+Hey there, fellow quarantine warriors! Let’s talk about pets during lockdown. Sure, being stuck at home might make you feel like you’re climbing the walls, but having a furry friend by your side can make it a whole lot better. Trust me, I speak from experience. Pet ownership during lockdown has been the ultimate mood booster - from spontaneous dance parties with my cat to long walks with my dog.
+
+Pets don’t just provide companionship, they also keep you in check. I mean, who else is going to remind you when it’s dinner time or give you those puppy dog eyes when they want to play? Plus, taking care of a pet teaches responsibility and routine, something we all need during these crazy times. So, if you’re feeling lonely or just need a little extra love, consider adopting a pet. They may not be able to solve all our problems, but they sure can make them a bit more bearable. #PetPower #LockdownLife
