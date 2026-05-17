@@ -1,0 +1,5 @@
+# VSCO girl - Relaxed and eco-conscious style with an emphasis on oversized t-shirts, scrunchies, and Hydro Flask water bottles. — 2026-05-17
+
+Hey VSCO girls and VSCO enthusiasts! Let’s talk about the ultimate chill vibe that comes with being a VSCO girl. It’s all about rocking those oversized t-shirts, stacking up those trendy scrunchies on your wrist, and staying hydrated with your Hydro Flask by your side. Not to mention, the eco-friendly perks of using reusable water bottles? *Chef’s kiss*.
+
+This iconic aesthetic is all about embracing a laid-back, beachy style while staying conscious of our impact on the environment. Plus, who doesn’t love a cute and colorful sticker-covered Hydro Flask to show off your personality? So ditch the plastic bottles, throw on your oversized tee, and scrunchie up your hair - it’s time to channel those effortless VSCO girl vibes and make a statement, one reusable water bottle at a time. Stay cool, stay eco-friendly, and keep on being your authentic VSCO self!✌️🌊 #SaveTheTurtles 🐢💕

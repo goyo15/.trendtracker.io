@@ -1,0 +1,3 @@
+# Slang and trends — 2026-05-17
+
+Hey squad, let's talk about slang and trends! 🤙🏼 Whether you're flexing your fit on the 'gram or spilling the tea with your besties, staying on top of the latest lingo and fashions is a major key to staying fly. 💁🏻‍♀️ From "slay" to "stan" to "sksksk," the language of Gen Z is constantly evolving, so don't be caught looking dusty! And let's not forget about the trends – tie-dye everything, chunky sneakers, and VSCO filters are just a few examples of what's hot RN. So, don't be a basic bish, embrace the wave and slay all day! 🌊💅 Stay woke, stay trendy, and remember, being extra is never a bad thing. Keep vibin' and keep it 100, fam! That's the tea. 🍵✨ #SlayingIt #Trendsetter #NoBasicZone
