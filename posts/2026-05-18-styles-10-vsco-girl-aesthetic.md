@@ -1,0 +1,5 @@
+# VSCO girl aesthetic — 2026-05-18
+
+Hey, fellow cool cats! Let's chat about the VSCO girl aesthetic today. 🌿🌊🐚 You know the look - oversized tees, scrunchies, Hydro Flasks, and Birkenstocks. It's all about those beachy vibes and eco-friendly accessories. Embracing your natural beauty, spreading positivity, and caring for the environment - that's what being a VSCO girl is all about. 🌎💫 
+
+And let's not forget the iconic phrases like "sksksk" and "and I oop-" that have become part of our everyday vocab. Whether you're snapping selfies with your reusable metal straw or rocking your shell necklace with some thrifted jeans, the VSCO girl aesthetic is all about keeping it chill and riding the wave of positive vibes. So grab your friendship bracelets and your puka shell anklet, and let's keep the good vibes rolling. Stay groovy, my friends! ✌️🌸 #VSCOgirl #PositiveVibesOnly

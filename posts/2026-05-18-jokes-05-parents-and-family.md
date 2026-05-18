@@ -1,0 +1,5 @@
+# Parents and Family — 2026-05-18
+
+Hey fam! Let’s talk about the OG squad - our parents and family. They might drive us crazy with their rules and lectures, but deep down, we know they’ve got our backs. Yeah, they might not always understand our love for TikTok or why we need to text instead of call, but they’ve been through it all themselves and are just trying to guide us (even if they do it in the most annoying way possible). 
+
+It’s easy to take them for granted, but let’s give credit where credit is due. They’re the ones who have been there since day one, cheering us on, wiping our tears, and reminding us to clean our rooms. So, next time they’re being extra and asking a million questions, maybe cut them some slack. They’re just trying to navigate this crazy world too. Cheers to the fam - they might be embarrassing at times, but we wouldn’t be who we are without them. Much love! ✌️ #FamilyFirst #ParentsRock

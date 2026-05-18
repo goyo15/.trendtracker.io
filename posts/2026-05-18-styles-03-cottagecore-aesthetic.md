@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2026-05-18
+
+Hey there, fellow burlap-loving, flower-crown-wearing folks! Let's dive into the cozy world of Cottagecore aesthetic, shall we? Imagine stepping into a fairytale land where picnics are a daily occurrence, floral dresses are a must, and rustic cottages are your dream home. It's all about embracing a simpler life filled with nature, vintage vibes, and sweet pastel colors. 
+
+Picture yourself frolicking through meadows, baking fresh bread, and collecting wildflowers for your charming little cottage. It's like living in a Pinterest board come to life! Cottagecore is all about finding beauty in the small things, connecting with nature, and sprinkling a touch of whimsy into your everyday life. So, grab your straw hat, lace up your boots, and let's escape to a world where the pace is slow, the tea is hot, and the vibes are oh-so-cozy. Cottagecore forever, am I right? 🌿🌻 #CottagecoreVibes
