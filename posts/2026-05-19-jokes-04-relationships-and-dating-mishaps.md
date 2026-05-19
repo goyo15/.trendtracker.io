@@ -1,0 +1,5 @@
+# Relationships and dating mishaps — 2026-05-19
+
+Hey, teens! Let’s talk relationships and dating mishaps, shall we? 🙄 We’ve all been there, done that, and probably have the cringe-worthy stories to prove it. From accidentally calling your crush by the wrong name to sending a text meant for your BFF to your date, the dating world can be a minefield of mishaps. But hey, it’s all part of the learning curve, right? 🤷‍♀️
+
+Just remember, it’s okay to make mistakes – that’s how we grow and learn what we actually want in a relationship. So, embrace the awkward moments, laugh off the mishaps, and keep swiping until you find someone who appreciates your quirky sense of humor and forgives your awkward blunders. And remember, the right person won’t care about the mishaps, they’ll care about the real you. ✨ Stay confident, stay true to yourself, and keep the faith that the perfect match is out there – mishaps and all! 💖 #RelationshipRookie #DatingDisasters #LoveIsMessy

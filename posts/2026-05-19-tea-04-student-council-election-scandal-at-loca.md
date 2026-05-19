@@ -1,0 +1,5 @@
+# Student council election scandal at local school gains attention — 2026-05-19
+
+Hey, fellow high schoolers! 📢 Have you heard about the juicy drama unfolding in our local school? 🕵️‍♀️ The student council election scandal is blowing up, and everyone has their eyes glued to the latest updates. 🤯 Rumors are flying left and right, with accusations of cheating, backstabbing, and secret alliances. 💥 It’s like our very own real-life episode of "Gossip Girl"! 😱
+
+But amidst all the chaos, one thing is clear: students are fired up and ready to take action. 🔥 The scandal has sparked intense debate and discussion about fairness, integrity, and accountability in student leadership. 🙌 Whether you’re Team Accusations or Team Innocent Until Proven Guilty, one thing is for sure – this election scandal has brought our school community together in a way we never expected. 🌟 Keep your popcorn ready, folks, because this is one ride you won’t want to miss! 🍿 #StudentCouncilDrama #HighSchoolShowdown

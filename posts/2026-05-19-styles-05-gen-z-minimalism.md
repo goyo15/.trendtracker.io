@@ -1,0 +1,5 @@
+# Gen Z minimalism — 2026-05-19
+
+Hey fellow Gen Z-ers, let's talk about the minimalist trend that's taking over our generation by storm! 🌪️ Embracing minimalism isn't just about decluttering your room or having a capsule wardrobe - it's a lifestyle choice that sparks joy, reduces stress, and helps us focus on what truly matters. Say goodbye to the unnecessary clutter and hello to intentional living!
+
+Whether it's Marie Kondo-ing your belongings, cutting down on screen time, or opting for sustainable fashion choices, Gen Z minimalism is all about simplicity and mindfulness. We’re all about quality over quantity, experiences over possessions, and making a positive impact on the world around us. So let's ditch the excess, embrace the essentials, and live our best minimalist lives! Who's with me? ✨ #GenZMinimalism #LessIsMore #SimplifyAndServe
