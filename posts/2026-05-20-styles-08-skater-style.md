@@ -1,0 +1,3 @@
+# Skater Style — 2026-05-20
+
+Hey y’all, let’s talk SKATER STYLE! 🛹🤘 Whether you actually skate or just love the laid-back vibes, skater style is all about rocking that effortlessly cool look. Think baggy ripped jeans, graphic tees, and always, always a killer pair of Vans or Converse. It’s all about mixing comfort with edgy streetwear flair. Don’t forget your beanie and some sick socks to complete the look. And can we talk about the accessories? From snapback hats to chunky chains, your accessories game better be on point. Bonus points for embracing the DIY mentality and customizing your gear with patches and pins. Who said skater style was just for the skate park? Own your look, own your attitude, and shred that style, babes! 💥🔥 #SkaterStyle #ShredTheRunway
