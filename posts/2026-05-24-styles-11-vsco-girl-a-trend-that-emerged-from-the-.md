@@ -1,0 +1,5 @@
+# VSCO Girl: A trend that emerged from the VSCO app, characterized by oversized t-shirts, scrunchies, Birkenstocks, and hydro flasks. — 2026-05-24
+
+Hey, what’s up my stylish peeps! Let’s talk about the VSCO Girl trend that’s taking over our feeds faster than you can say “sksksk”. Rocking oversized tees, scrunchies for days, Birkenstocks, and toting around those iconic hydro flasks, VSCO girls have become the epitome of laid-back cool. But let’s be real, it takes more than just the right outfit to be a true VSCO queen.
+
+It’s all about that carefree vibe, embracing nature, and spreading positivity. From capturing the perfect sunset on your VSCO app to sipping on your eco-friendly metal straw, being a VSCO girl is more than just a fashion statement—it’s a lifestyle. So whether you’re already sporting the look or looking to jump on the trend, remember to stay true to yourself and always keep that positive energy flowing. Let’s spread some good vibes, one “and I oop” at a time! Peace out, my fellow VSCO enthusiasts! ✌️🌸🌿 #VSCOgirl #Sksksk

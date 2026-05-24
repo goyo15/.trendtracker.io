@@ -1,0 +1,5 @@
+# Roasting common stereotypes and clichés — 2026-05-24
+
+Hey fam, it’s time to spill the tea and roast some common stereotypes and clichés that we’re all so over. Like, can we talk about how ridiculous it is that girls are expected to be obsessed with makeup and boys with sports? Um, no thanks, society. We’re multi-dimensional beings, not cardboard cutouts conforming to your outdated norms. And don’t even get me started on the whole “all teenagers are lazy and rebellious” shtick. Newsflash: we’re out here hustling, advocating for change, and making a difference in the world.
+
+Let’s break free from these tired tropes and embrace the individuality and diversity that make us awesome. So next time someone tries to box you in with a tired stereotype, clap back with some major attitude and show them what you’re really made of. Stay woke, stay fierce, and keep roasting those stereotypes like the boss you are. #SlayingTheClichés 💁🔥✌️
