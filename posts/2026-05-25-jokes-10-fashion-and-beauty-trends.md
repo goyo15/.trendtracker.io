@@ -1,0 +1,5 @@
+# Fashion and beauty trends — 2026-05-25
+
+Hey glam squad, let’s spill the tea on the hottest fashion and beauty trends taking over the scene! 🌟 From oversized blazers to chunky sneakers, the ‘90s are making a major comeback, giving us all the retro vibes we didn’t know we needed. And can we talk about the rise of neon makeup looks? Bold and unapologetic, these electric hues are edgy and fierce AF. Not to mention, skincare is the new black, and self-care is the new cool. Glow up your routine with serums, masks, and plenty of hydration – because healthy skin is always in.
+
+But, remember babes, trends come and go quicker than you can say ‘new phone, who dis?’. So, rock what makes you feel fab, experiment fearlessly, and never be afraid to slay in your own unique style. Fashion fades, but your confidence is timeless. Stay fierce, stay flawless, and keep slaying, queen bees! 💋✨ #FashionForward #BeautyBabe #TrendSetter

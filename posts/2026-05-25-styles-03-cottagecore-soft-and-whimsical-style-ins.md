@@ -1,0 +1,5 @@
+# Cottagecore: Soft and whimsical style inspired by rural life, often featuring floral dresses, vintage touches, and straw hats. — 2026-05-25
+
+Hey there, all you trendsetters and daydreamers! 🌼 Let's talk cottagecore, the aesthetic that's basically a love letter to all things cozy and nostalgic. Picture this: flowing floral dresses, vintage knick-knacks, and straw hats galore. It's like stepping into a fairytale world where everyday life is a little more magical and a lot more picturesque. 🌿
+
+Cottagecore is all about embracing the simple joys of rural living and bringing a touch of that countryside charm into our modern hustle-and-bustle lives. It's like hitting the pause button and taking a deep breath of fresh air, even if you're just scrolling through Instagram in your city apartment. So, why not add a bit of whimsy to your wardrobe with some floral prints and cozy cardigans? Embrace the cottagecore vibes and let your inner romantic spirit shine! 💫 #CottagecoreGoals #VintageVibes

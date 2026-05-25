@@ -1,0 +1,5 @@
+# Streetwear: Influenced by hip-hop and skate culture, includes baggy clothes, sneakers, and hoodies from brands like Supreme and Off-White. — 2026-05-25
+
+Hey fam, let's talk streetwear! 🤙 Influenced by the raw vibes of hip-hop and skate culture, streetwear is all about that laid-back swag. Think baggy clothes, dope sneakers, and cozy hoodies, all making a statement on the concrete catwalk. Brands like Supreme and Off-White are the go-to for that next-level drip. 
+
+Rockin’ streetwear isn’t just about what you wear, it's a whole attitude. It’s about claimin’ your space, standin' out from the crowd, and showin' the world who you are without saying a word. Whether you’re hittin’ the city streets or shreddin’ at the skate park, streetwear is the uniform of rebels, creatives, and trendsetters alike. So grab your freshest kicks, your comfiest hoodie, and own that street style like no one else can! 🖤✨ #StreetwearVibes #StayFresh #OwnYourStyle
