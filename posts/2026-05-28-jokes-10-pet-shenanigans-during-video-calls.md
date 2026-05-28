@@ -1,0 +1,5 @@
+# Pet shenanigans during video calls — 2026-05-28
+
+Ugh, can we talk about the real MVPs stealing the spotlight during video calls? PET PALS, I’m looking at you! Just trying to show my face and boom, my dog decides it’s the perfect time to showcase her impressive vocal range. Also, can we talk about how my cat thinks my keyboard is his personal stage during calls? Like, hello, I’m typing here! And let’s not forget about the classic tail in the frame situation. Every. Single. Time.
+
+Honestly, who needs a virtual background when you have pets pulling off shenanigans like this? They don’t care about our professional settings or trying to look presentable. Nope, they’re here to remind us that life is messy, hilarious, and full of unexpected interruptions. So next time your furry friend makes a cameo, just embrace the chaos and enjoy the entertainment they bring. Because let’s face it, they steal the show every time.

@@ -1,0 +1,5 @@
+# Cancel Culture Callout Videos — 2026-05-28
+
+Hey fam, let’s talk about cancel culture callout videos - are they here for justice or just another way to flex clout? 🤷‍♀️ While it’s important to hold people accountable for their actions, are these videos really about seeking truth or just a popularity contest? 🤔 Let’s ditch the drama for a sec and think critically about the real impact. Are these callouts creating positive change or just perpetuating a toxic cycle of public shaming? 💅
+
+Remember, it’s easy to hit record and call someone out, but it takes real integrity to address issues in a constructive and respectful way. Let’s aim for accountability over cancelation, empathy over aggression, and growth over gossip. 🌟 So before you jump on the cancel culture bandwagon, ask yourself - are you shedding light on important issues or just adding fuel to the fire? Stay woke, stay kind, and keep it real, fam. ✌️ #CancelCancelCulture #CallOutWithCompassion

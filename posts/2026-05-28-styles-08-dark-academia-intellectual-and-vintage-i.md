@@ -1,0 +1,5 @@
+# Dark academia - Intellectual and vintage-inspired fashion aesthetic with tweed blazers, turtlenecks, pleated skirts, and accessories like book bags and spectacles. — 2026-05-28
+
+Okay, listen up, my fellow style-savvy squad! Let’s dive into the dark academia trend that’s taking over our feeds faster than you can say “study session”. Picture this: tweed blazers that scream sophistication, turtlenecks for days, pleated skirts that make you feel like you’re strolling through a vintage novel – all topped off with book bags and spectacles for that extra “I’m too cool for school” vibe. 📚🖤
+
+This aesthetic is like something straight out of a classic library scene, and I am here for it! Embracing dark academia means embracing your inner bookworm with a side of killer fashion sense. So, throw on those layers, grab your favorite novel, and get ready to slay the academic game AND the style game. It’s all about bringing a touch of old-world charm into our modern lives – and trust me, you’ll be turning heads on campus. Let’s rock that intellectual swag, babes! 💁‍♀️🔥 #DarkAcademia #VintageVibes #FashionForward

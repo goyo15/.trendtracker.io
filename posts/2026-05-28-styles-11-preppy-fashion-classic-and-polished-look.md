@@ -1,0 +1,5 @@
+# Preppy fashion - Classic and polished look featuring button-down shirts, blazers, pleated skirts, loafers, pearls, and influences from Ivy League collegiate style. — 2026-05-28
+
+Hey fam, let’s talk preppy fashion, the OG vibe that never goes out of style! 🌟 Whether you’re into the tailored look of button-down shirts, blazers, pleated skirts, loafers, or accessorizing with pearls, preppy fashion is all about that sleek and sophisticated aesthetic. 💁‍♀️ Picture those Ivy League college kids strolling around campus in their crisp outfits - that’s the vibe we’re channeling! Keeping it classic yet chic with clean lines and timeless pieces that elevate any look. ✨
+
+So next time you’re looking to add a touch of polish to your outfit, think preppy! Whether it’s a structured blazer over a casual tee, pairing loafers with skinny jeans, or adding pearls for a touch of elegance, preppy fashion is all about being effortlessly put together. Own that preppy style and show the world you mean business, even if you’re just heading to the mall. 😉 #PreppyVibes #ClassicChic 🌿👗👠📚
