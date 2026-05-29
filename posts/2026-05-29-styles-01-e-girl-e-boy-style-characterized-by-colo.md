@@ -1,0 +1,5 @@
+# E-girl/E-boy style - characterized by colorful hair, graphic tees, baggy pants, and heavy eye makeup. — 2026-05-29
+
+Hey, squad! Let's talk about the iconic E-girl/E-boy style that's taking over our feeds. From the colorful hair to the heavy eye makeup, this look is all about expressing your unique personality loud and proud. Graphic tees with bold designs, baggy pants for that chill vibe, and accessories that scream individuality - that's the essence of E-girl/E-boy fashion.
+
+Whether you're into pastel colors or gothic vibes, there's no one way to rock this style. Experiment with different hairstyles, play around with funky eye makeup looks, and don't be afraid to mix and match patterns. It's all about embracing your creativity and owning your style. So, grab your favorite graphic tee, throw on those baggy pants, and let your colorful hair fly free. E-girls and E-boys, unite! ✌🏼💜 #Egirl #Eboy #FashionGoals

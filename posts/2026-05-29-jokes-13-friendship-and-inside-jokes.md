@@ -1,0 +1,5 @@
+# Friendship and Inside Jokes — 2026-05-29
+
+Alright, listen up, squad! Let’s spill the tea on friendship and inside jokes.🔥 You know those moments when you and your besties share a look and burst into laughter, leaving everyone else wondering what’s so hilarious? That’s the power of inside jokes, fam! They’re like secret codes that only you and your crew understand, building a bond that’s tighter than skinny jeans.💁‍♀️
+
+Inside jokes aren’t just about making us LOL, they’re a key ingredient in the recipe for epic friendships. They show that you don’t just hang out together, you truly get each other on a whole other level. So next time you and your ride-or-dies find yourselves cracking up over something only you understand, remember that it’s those little moments that make your friendship lit AF.✨ Keep those inside jokes coming, because they’re the glue that holds your squad together through thick and thin, y’all! 💯 #SquadGoals #BFFsForever

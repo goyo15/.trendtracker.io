@@ -1,0 +1,3 @@
+# Memes and viral challenges — 2026-05-29
+
+Hey, fam! Let’s chat about memes and viral challenges - aka the bread and butter of internet culture. 🌐💥 From funny cat videos to dance crazes like the Renegade, these trends spread like wildfire through the online world. Whether you’re double tapping on TikTok or sharing a relatable Spongebob meme with your squad, these digital gems unite us in laughter and creativity. But, let’s keep it real - not all challenges are created equal. Some can be downright dangerous or harmful. So, before you jump on the trend train, make sure it’s something you’re comfortable with and won’t regret later. Let’s stay lit, but also stay smart, okay? Now go forth and meme on, my friends! 💪🔥 #StaySavage #InternetCulture101
