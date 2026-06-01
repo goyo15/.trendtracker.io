@@ -1,0 +1,3 @@
+# "Did you hear about Sarah and Justin's breakup? It's all over Instagram and TikTok!" — 2026-06-01
+
+Hey, squad! 🌟 Have you heard the tea about Sarah and Justin's breakup? 💔 It's blowing up faster than you can say "unfollow." 🙅‍♀️ This drama is everywhere - literally, I can't scroll through Insta or TikTok without seeing it! 📱 Who knew love could be so messy in the digital age, am I right? 🤳 But seriously, breakups are never easy, especially when they're playing out in front of millions of eyes on social media. 😬 Let's send some positive vibes to Sarah and Justin, and maybe steer clear of the relationship drama for a bit. 🙏 After all, we've got our own lives to live and our own selfies to post, right? 💁‍♂️ Stay drama-free, babes! 💋 #StayStrongSarah #SendingPositiveVibes

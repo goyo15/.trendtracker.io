@@ -1,0 +1,5 @@
+# Athleisure: Comfy and cool, this trend mixes athletic wear with everyday clothing for a sporty-chic look. — 2026-06-01
+
+Hey fam! Let’s chat about athleisure – the trend that’s all about blending athletic gear with your everyday style for a look that’s comfy AND cool. Think sporty leggings paired with a cozy oversized hoodie, or sleek sneakers with a cute t-shirt dress. Athleisure is all about strutting your stuff in outfits that are as practical as they are trendy. 
+
+Whether you’re hitting the gym, grabbing brunch with friends, or just lounging around the house, athleisure has got your back. It’s versatile, effortless, and totally Instagram-worthy. Plus, who doesn’t love rocking a pair of leggings that make your booty look fire? 🔥 So next time you’re debating what to wear, remember: athleisure is the way to slay all day. Stay stylish, stay comfy, and keep on serving those sporty-chic vibes. You got this, squad! 💁‍♀️💪 #athleisure #comfyandcool #sportychic
