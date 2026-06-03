@@ -1,0 +1,3 @@
+# Animal prints — 2026-06-03
+
+Hey cuties! 🐾 Let’s talk about a trend that’s totally wild and fierce – animal prints! Whether you're prowling the halls of school or hitting the town with your squad, animal prints are a total vibe. From leopard to zebra to snake, there’s a print for every mood and style. Rock a tiger print skirt for a bold statement, or throw on a cheetah print top for some casual coolness. Feeling extra sassy? Mix and match different animal prints for a look that’s totally untamed. And don’t forget to accessorize with some statement animal print shoes or a fierce clutch. So next time you’re getting dressed, don’t be afraid to unleash your inner animal. Roar with confidence and let your style run wild! 🐆✨ #StayFierce #AnimalPrints #FashionForward

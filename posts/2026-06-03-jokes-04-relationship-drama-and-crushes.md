@@ -1,0 +1,5 @@
+# Relationship drama and crushes — 2026-06-03
+
+Hey, drama queens and kingsters! Let’s talk about the ultimate rollercoaster ride known as relationship drama and crushes. We’ve all been there, right? Crushing on someone so hard it feels like you’re on Cloud 9, only to have it crash and burn quicker than you can say “heartbreak”. The excitement, the mixed signals, the late-night stalking on social media - it’s all part of the game.
+
+But here’s the deal, fam: don’t let these ups and downs define you. Crushes come and go, relationships fizzle out, and that’s okay. The key is to stay true to yourself, focus on your own growth, and remember that you’re a diamond, baby, not a pebble. So, next time you find yourself knee-deep in relationship drama, take a step back, breathe, and remind yourself that you’re a boss who doesn’t need anyone else to complete you. Keep shining, keep slaying, and remember - your crush can’t handle all this awesomeness anyway!✨ #CrushGameStrong

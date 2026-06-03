@@ -1,0 +1,5 @@
+# Dalgona Coffee Trend — 2026-06-03
+
+Hey fam! Let’s spill the tea on the latest trend that’s sending caffeine lovers into a frenzy – Dalgona coffee! 🙌☕️ This frothy, whipped coffee sensation has taken over TikTok and Instagram, and for good reason. All you need is equal parts instant coffee, sugar, and hot water, whipped together until it’s light, airy, and oh-so Instagrammable. Serve it over your choice of milk and voila, you’ve got yourself a fancy café-style drink in the comfort of your own home. Trust me, it tastes even better than it looks! 💁‍♀️✨
+
+But beware, this trendy drink isn’t for the faint of heart – it packs a serious caffeine punch. So, if you’re looking to up your at-home coffee game and impress your followers, give Dalgona coffee a try. Just don’t forget to snap a pic for the ‘gram before you take that first sip! Are you team Dalgona or is this trend too basic for your taste buds? Let me know in the comments! #DalgonaCoffee #WhippedCoffee #TrendySips

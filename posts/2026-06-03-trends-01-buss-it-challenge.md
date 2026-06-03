@@ -1,0 +1,5 @@
+# Buss It Challenge — 2026-06-03
+
+Hey, fam! Let’s talk about the latest viral craze taking over TikTok - the Buss It Challenge! This challenge is all about bringing the heat and confidence as you transition from cozy loungewear to full-on glam mode, all while grooving to the catchy beat of Erica Banks' hit song "Buss It". It’s a fierce reminder to embrace your inner diva and show off your best moves with style and sass. 
+
+Whether you’re busting out killer dance moves or just feeling yourself in front of the mirror, the Buss It Challenge is all about owning your vibe and radiating fierce energy. So, grab your favorite outfit, crank up the volume, and let your confidence shine through. Because, hey, we all deserve a moment to feel fabulous and unstoppable! 💃🔥 #BussItChallenge #OwnTheVibe #YouGotThis

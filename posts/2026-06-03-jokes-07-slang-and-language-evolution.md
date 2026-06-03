@@ -1,0 +1,3 @@
+# Slang and language evolution — 2026-06-03
+
+What’s the tea, fam? Let’s spill it about slang and language evolution! ✨ From “groovy” in the 70s to “lit” in the 2010s, our language is all about that glow-up. Remember when “bae” was the hottest term on the block? Now, we’re all about “sksksk” and “and I oop-”. The way we talk evolves faster than trends on TikTok! But here’s the real tea – slang isn’t just about being trendy. It’s how we bond, express ourselves, and even challenge the status quo. So, stay woke, keep it real, and let your vocab glow-up with the times. Because at the end of the day, your words are your power. Stay slayin’, my peeps! 💁🏻‍♀️🔥 #LanguageGoals #SlayTheSlang #EvolveOrDissolve

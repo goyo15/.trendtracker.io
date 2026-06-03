@@ -1,0 +1,5 @@
+# Cottagecore aesthetic — 2026-06-03
+
+Hey, all you cool cats and kittens! Let’s talk about the hottest aesthetic trend taking over our feeds: Cottagecore! Think dreamy floral dresses, picnics in the meadow, and cozy rustic vibes. This trend is all about embracing the simple joys of country living and connecting with nature. Picture yourself baking homemade bread, sipping on tea in a quaint cottage, and dancing in a sunlit field – sounds pretty dreamy, right?
+
+Cottagecore is like stepping into a fairytale world where everything is peaceful and magical. It’s all about slowing down, cherishing the little moments, and filling our lives with warmth and nostalgia. So, grab your vintage teacup and flower crown, because we’re diving headfirst into this whimsical aesthetic! Whether you’re an urban jungle dweller or a small-town sweetheart, Cottagecore invites us to escape the chaos and soak up the beauty of the simple life. Embrace the flora, wear those flowy dresses, and let’s all live our best cottagecore fantasy! 🌿🌻 #CottagecoreVibes #StayWhimsical
