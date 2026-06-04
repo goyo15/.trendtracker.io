@@ -1,0 +1,5 @@
+# #PokerFaceChallenge — 2026-06-04
+
+Hey, fam! 🃏💁‍♀️ Let’s talk about the #PokerFaceChallenge that’s blowing up the internet right now! Whether you’re into poker or not, this challenge is all about keeping a straight face while facing some seriously hilarious or cringe-worthy situations. From trying not to laugh at your friend’s awful joke to keeping it cool when your crush walks by, the struggle is real! 😂👀
+
+But here’s the tea – mastering the #PokerFaceChallenge isn’t just about looking unbothered, it’s a whole vibe. It’s about staying strong and staying swag, no matter what life throws at you. So, grab your squad, film your best attempts, and let’s see who’s got the sickest poker face in town! Remember, it’s all fun and games, so don’t take it too seriously. Keep slaying, stay true to yourself, and always remember to keep that poker face on point! 💅🃏 #StaySlaying #PokerFaceGoals

@@ -1,0 +1,5 @@
+# Dream Smp — 2026-06-04
+
+Hey fam, let's talk about the absolute insanity that is the Dream SMP. If you're not tuned in, you're seriously missing out on the drama, friendships, and epic battles that go down in this Minecraft server. From alliances forming and breaking, to betrayals and redemption arcs - it's basically a virtual soap opera on steroids. And can we talk about the insane talent these creators bring to the table? Dream, GeorgeNotFound, TommyInnit, and the crew are constantly pushing the boundaries of what's possible in the game.
+
+But let's be real, it's not all sunshine and rainbows. The Dream SMP is also a hotbed of controversy and scandals, with friendships tested and rivalries reaching a boiling point. Whether you're Team Dream or Team Tommy, one thing's for sure - this server is a wild ride from start to finish. So, grab your popcorn and settle in, because things are about to get intense in the world of Dream SMP. Stay woke, my friends.

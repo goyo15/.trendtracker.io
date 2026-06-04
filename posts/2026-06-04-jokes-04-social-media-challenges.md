@@ -1,0 +1,5 @@
+# Social media challenges — 2026-06-04
+
+Yo, what’s up fam! Let’s talk about social media challenges, the good, the bad, and the downright ridiculous. We’ve all seen people doing crazy stuff online just for the clout – from the cinnamon challenge to the ice bucket challenge. While some challenges are all in good fun and raise awareness for important causes, others can be straight up dangerous. Let’s not forget the Tide Pod challenge, like seriously, why would anyone think swallowing laundry detergent is a smart idea?! 
+
+It’s important to be smart about the challenges we participate in. Let’s use our platforms for positive change and uplifting others, not for risking our health or safety for a few extra likes. So, next time you see a challenge pop up on your feed, think twice before jumping on the bandwagon. Stay safe, stay smart, and keep slaying those selfie game, my peeps! ✌️ #ChallengeAccepted #UseYourBrain
