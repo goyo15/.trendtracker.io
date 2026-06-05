@@ -1,0 +1,5 @@
+# Y2K Fashion — 2026-06-05
+
+What’s goin’ on, squad! Let’s talk Y2K fashion, because my TikTok feed is blowing up with all those throwback looks! From low-rise jeans that barely cover your booty to butterfly clips that make you feel straight outta the ‘90s, we are bringing back all the vibes from the turn of the century. And can we talk about how mini skirts and platform sneakers are making a major comeback? I’m all about it!
+
+But let’s be real, some trends should have stayed in the past. Like, who decided that bedazzled everything was a good idea? And don’t even get me started on those velour tracksuits that we all owned in every color back in the day. Overall, Y2K fashion is a vibe, and I’m totally here for it. So grab your Baby-G watch and denim mini skirt, because we’re bringing the early 2000s back in a big way. Peace out, fashionistas!✌️ #Y2Kthrowback #SoFetch🔥

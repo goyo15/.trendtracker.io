@@ -1,0 +1,5 @@
+# Cottagecore Aesthetic — 2026-06-05
+
+Hey fam! Have you heard of the latest aesthetic trend taking over social media? It’s called Cottagecore and trust me, it’s all kinds of cozy vibes! Picture this: lush green fields, flower-filled meadows, and rustic cottages straight out of a fairytale. Cottagecore is all about embracing the simple life and connecting with nature. Think flowy dresses, vintage knits, and handmade crafts galore.
+
+Whether you’re into baking homemade bread, planting a garden, or just chilling with a good book in a cozy nook, Cottagecore is all about slowing down and appreciating the beauty of the world around us. It’s a vibe that’s all about embracing your inner earthy goddess and finding joy in the little things. So, if you’re looking to add a touch of whimsy and tranquility to your life, jump on the Cottagecore bandwagon and get ready to live your best fairy tale fantasy! 🌿🧚‍♀️ #CottagecoreGoals #NatureNurturer

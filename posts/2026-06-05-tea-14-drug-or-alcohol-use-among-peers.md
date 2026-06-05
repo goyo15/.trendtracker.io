@@ -1,0 +1,5 @@
+# Drug or alcohol use among peers — 2026-06-05
+
+Hey, fam! Let’s talk about a serious issue that’s all too prevalent among teens today - drug and alcohol use among peers. Listen up, squad, I get it, sometimes peer pressure can be mad intense, but that’s no excuse to mess with your future. Sippin’ on alcohol or dabbling in drugs might seem cool in the moment, but trust me, the consequences are so not worth it. 
+
+Your squad should be about lifting each other up, not dragging each other down. Don’t fall into the trap of thinking you need substances to have fun or fit in. Real talk - your health and well-being are way more important than some temporary high. So, next time your crew suggests hitting up a party where there’s gonna be substances flowin’, be bold and say no. Remember, you’re too legit to quit. Stay true to yourself and choose to be the positive influence in your squad. Peace out!

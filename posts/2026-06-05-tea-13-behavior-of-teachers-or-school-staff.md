@@ -1,0 +1,5 @@
+# Behavior of teachers or school staff — 2026-06-05
+
+Alright, let’s talk about the behavior of teachers and school staff because, let’s be real, some of them need a serious reality check. Like, do they forget that we’re human too? I get it, teaching can be tough, but that’s no excuse to be disrespectful or play favorites in class. And don’t even get me started on the ones who love to dish out detention like it’s candy on Halloween. Seriously, chill out.
+
+But hey, shoutout to the cool teachers who actually listen, support us, and make learning fun. You guys are the real MVPs. As for the grumpy ones, maybe it’s time for a personality makeover. We’re not just students, we’re people with feelings and potential. So, teachers and staff, let’s work together to create a positive and inspiring environment. You might just be surprised by how much more we can achieve when we’re all on the same team. Peace out!
