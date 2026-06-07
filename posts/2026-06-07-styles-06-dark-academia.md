@@ -1,0 +1,5 @@
+# Dark academia — 2026-06-07
+
+Hey fellow bookworms and aspiring scholars! 📚✨ Let’s talk about the trend that’s taking the academic world by storm – Dark Academia 💀🖋️. With its moody aesthetics, intellectual vibes, and a hint of mystery, Dark Academia has captured the hearts of many of us who yearn for a touch of sophistication in our lives. From classic literature to vintage fashion, this trend is all about embracing the dark and brooding side of academia.
+
+Whether you’re diving into a classic novel by candlelight or strolling through campus in a tweed blazer, Dark Academia is the perfect mix of old-world charm and modern-day allure. So grab your leather-bound journal, sip on that black coffee, and immerse yourself in the world of Dark Academia. Who knows, you might just discover a newfound love for Gothic architecture and Latin poetry along the way! 🏛️📜 #DarkAcademia #BookishVibes #StayScholarly

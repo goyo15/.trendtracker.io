@@ -1,0 +1,5 @@
+# Preppy style — 2026-06-07
+
+Hey there, preppy pals! Let’s talk about the classic and oh-so-chic preppy style. Think clean lines, tailored pieces, and a whole lot of sophistication. Whether you’re rocking a cute collared shirt, a trendy sweater tied around your shoulders, or some crisp khaki pants, preppy fashion always screams “I’ve got my act together”. And let’s not forget the iconic accessories – pearls, loafers, and a trusty tote bag are must-haves to complete the look. 
+
+But here’s the thing – preppy style isn’t just about the clothes, it’s a whole vibe. It’s about exuding confidence, grace, and a hint of old-school charm. So next time you’re looking to upgrade your wardrobe, consider adding a touch of preppy flair. Trust me, you’ll be turning heads and giving off major Gossip Girl vibes in no time. Stay stylish, stay preppy! ✨👔🎀 #PreppyPerfection
