@@ -1,0 +1,5 @@
+# Cottagecore aesthetic - featuring floral dresses, straw hats, and vintage-inspired pieces. — 2026-06-08
+
+Hey, lovelies! Let's talk about the dreamy Cottagecore aesthetic that's taking over our feeds! 🌸🌿 Picture this: frolicking through meadows in a flowy floral dress, topping it off with a cute straw hat and some vintage-inspired pieces. It's all about embracing that rustic, whimsical vibe that feels like a breath of fresh air. Whether you're into soft pastels or earthy tones, Cottagecore is all about connecting with nature and channeling those cozy, country cottage vibes.
+
+Not only does it make for some super cute Insta-worthy pics, but it also gives off major fairy-tale princess energy. Plus, rocking a Cottagecore look is like stepping into your own little world of serenity and charm. So, grab your favorite floral dress, toss on a straw hat, and let's wander through the enchanted forest of Cottagecore together! 🌼✨ #CottagecoreDreams #VintageVibes #NatureNymph

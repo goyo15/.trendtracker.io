@@ -1,0 +1,5 @@
+# VSCO girl aesthetic - characterized by scrunchies, oversized t-shirts, Birkenstocks, and a laid-back California vibe. — 2026-06-08
+
+Hey guys, let’s talk about the VSCO girl aesthetic that’s sweeping through social media faster than you can say "sksksk" and "and I oop-". Picture this: scrunchies, oversized tees, Birkenstocks, and a vibe that screams “I just came back from surfing in California” - you’ve got yourself a full-on VSCO girl look. It’s all about that effortlessly cool, laid-back style that says “I woke up like this” (even though we all know the effort that actually goes into looking this cute).
+
+But let’s be real, being a VSCO girl is more than just the clothes and accessories - it’s a mindset. It’s all about being environmentally conscious, spreading positivity, and just living your best life. So grab your hydro flask, take a sip of your metal straw, and let’s all channel our inner VSCO girl vibes. Because at the end of the day, it’s all about embracing who you are and having fun doing it. Stay cool, babes! #VSCOgirlaesthetic ✌️🌊🌞

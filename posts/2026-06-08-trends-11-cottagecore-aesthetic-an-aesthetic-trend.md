@@ -1,0 +1,5 @@
+# Cottagecore Aesthetic - An aesthetic trend celebrating rustic and whimsical countryside living. — 2026-06-08
+
+Hey fellow trendsetters! 🌿✨ Let’s talk about the newest aesthetic craze taking over our feeds - Cottagecore! 🏡🌾 It’s all about embracing that rustic, whimsical vibe of countryside living and turning it into a whole aesthetic MOOD. Picture flowy dresses, handmade crafts, flower crowns, and cozy cottages surrounded by wildflowers - *chef’s kiss* perfection! 🌼💫
+
+I’m totally here for it because it’s all about celebrating nature, simplicity, and finding beauty in the little things. Plus, it’s a vibe that’s all about sustainability and DIY creativity, which is so important these days. So whether you’re baking bread from scratch, frolicking in a field of sunflowers, or just chilling with a book under a tree, Cottagecore is your go-to inspo for those dreamy, feel-good moments. 🍃📚✨ Embrace the cozy, embrace the whimsy - let’s make Cottagecore the trend of the year! 🌻💖 #CottagecoreVibes #NatureIsMyAesthetic
