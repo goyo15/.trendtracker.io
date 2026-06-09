@@ -1,0 +1,5 @@
+# Social Media and Selfie jokes — 2026-06-09
+
+Hey fam, let's talk about the good ol' selfie jokes that flood our timelines and reign supreme on social media. 📸 From "I woke up like this" to "I didn't choose the selfie life, the selfie life chose me," these witty one-liners have us all cracking up and reaching for our phones to capture the perfect angle. Who knew a simple selfie could bring so much joy and have us doubling over with laughter?
+
+But let's be real, the selfie game is strong and we're all guilty of that perfect pout or awkward arm extension to get the best shot. And don't even get me started on the endless filters and editing apps to enhance our already flawless faces. 🤳 So next time you're scrolling through your feed and come across a selfie joke, embrace the humor and tag your selfie queen or king bestie. After all, life is too short not to laugh at ourselves and our selfie-taking antics. Stay fabulous, selfie enthusiasts! #SelfieGameStrong #JokesOnPoint ✨🔥
