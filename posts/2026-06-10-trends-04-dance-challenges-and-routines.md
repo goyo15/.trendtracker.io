@@ -1,0 +1,5 @@
+# Dance challenges and routines — 2026-06-10
+
+Hey fam, let’s talk dance challenges and routines! 💃🔥 Whether you’re hitting the dance floor or crushing it on TikTok, there’s no doubt that grooving to the latest challenges is where it’s at. From the Renegade to the Savage Love, these dances bring out our true vibes and showcase our fierce moves. It’s all about owning the rhythm and letting your style shine through. 🌟
+
+But hey, let’s not forget about the OG dance routines that never go out of style. Think about the iconic Single Ladies choreo or the timeless Moonwalk - those classics still make us want to bust a move! So, whether you’re learning new challenges or perfecting old routines, keep slaying and being unapologetically you on the dance floor. Remember, it’s not just about the steps, it’s about feeling the music and expressing yourself in the most epic way possible. Let’s keep dancing, fam! 💪🎶 #DanceIsLife #KeepGrooving

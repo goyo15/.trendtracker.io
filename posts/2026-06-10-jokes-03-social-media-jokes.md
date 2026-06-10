@@ -1,0 +1,5 @@
+# Social media jokes — 2026-06-10
+
+Hey internet fam! Let's talk about social media jokes - they’re like the sprinkle of sarcasm on our feeds, am I right? Whether it's memes that make us LOL or clever tweets that hit us right in the funny bone, social media jokes are the highlight of our scrolling sessions. It's the perfect way to bond over shared humor and connect with others through a good chuckle.
+
+But, let's remember that not all jokes are created equal – it's essential to be mindful of our audience and know where to draw the line. Let's keep it light, fun, and inclusive because spreading joy is what it's all about. So, next time you see a meme that's so relatable it's like it was made just for you, give it a like, share, or even a reply with your best GIF. And remember, laughter is contagious - so spread those social media jokes like confetti! #JokestersUnite
