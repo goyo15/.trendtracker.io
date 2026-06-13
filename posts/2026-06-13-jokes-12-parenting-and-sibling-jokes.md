@@ -1,0 +1,5 @@
+# Parenting and sibling jokes — 2026-06-13
+
+Hey there, fam! Let's talk about the ultimate struggle in every teen's life - dealing with those cringey parenting and sibling jokes. I mean, we gotta give props to our parents for trying to be funny, but let's be real, their jokes are so last century! And don't even get me started on those sibling roasts – they think they're hilarious but honestly, it's just straight-up sibling rivalry in joke form.
+
+But hey, let's not be too harsh on the 'rents and sibs. Maybe we can use their jokes as inspo for our own savage comebacks. After all, sarcasm runs in the family, right? So, next time your mom or dad drops a dad joke or your sibling tries to roast you, just hit 'em with an eye-roll and a killer one-liner. Because life's too short for bad jokes, but laughter is always welcome. Stay snarky, my fellow teens!✌️ #SavageGenZ #EyeRollEmojiRequired

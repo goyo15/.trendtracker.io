@@ -1,0 +1,5 @@
+# Cottagecore aesthetics — 2026-06-13
+
+Hey, y'all! Let's talk about the dreamy world of Cottagecore aesthetics! 🌿🌻 Picture this: cozy cottages nestled in the countryside, overflowing with vintage decor, floral prints, and hints of nostalgia. It's all about embracing a simple, rustic lifestyle that feels like a breath of fresh air from our busy, tech-filled lives. Think homemade pies, wildflower bouquets, and leisurely strolls through meadows. 
+
+Cottagecore isn't just a look, it's a vibe. It's about slowing down, connecting with nature, and finding beauty in the little things. Whether you're sipping tea on a front porch swing or getting lost in a good book by a crackling fire, Cottagecore is all about channeling those warm, fuzzy feelings of comfort and joy. So, if you're craving a touch of whimsy and a dash of countryside charm in your life, give Cottagecore a try! It might just be the perfect escape from the everyday hustle and bustle. 🌾💫 #CottagecoreVibes #SimpleJoys
