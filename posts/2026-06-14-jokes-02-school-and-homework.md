@@ -1,0 +1,5 @@
+# School and homework — 2026-06-14
+
+Hey fam! Let’s talk about the two words that make us all groan: school and homework. 📚💻 We’ve all been there, buried under a pile of assignments with our brains feeling like mush. But hey, here’s the tea – school may not be everyone’s fave hangout spot, but it’s where we sharpen our minds and flex those brain muscles. 💪 So, let’s tackle those homework assignments like the bosses we are!
+
+Pro-tip: Break it down, set goals, and reward yourself with a well-deserved break after each task. 🌟 And remember, it’s totally okay to ask for help when you need it. That’s what friends, teachers, and Google are for! So, crank up the tunes, grab your favorite snack, and show those homework monsters who’s boss. School and homework may be a drag sometimes, but we got this, squad! Let’s slay the day and conquer those to-do lists. 🙌 #SchoolLife #HomeworkHustle #WeGotThis
