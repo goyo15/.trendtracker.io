@@ -1,0 +1,5 @@
+# High-Intensity Interval Training (HIIT) Workouts — 2026-06-15
+
+Hey there squad, let’s talk about a workout trend that’s got me sweating but feeling fresh - High-Intensity Interval Training (HIIT) workouts! 🏋️‍♀️ HIIT is all about pushing your limits with quick bursts of intense exercise followed by short rest periods. It’s like a rollercoaster for your muscles! 💪 Whether you’re into cardio or strength training, there’s a HIIT routine for everyone.
+
+Why am I obsessed? Because a 20-minute HIIT sesh can torch more calories than a long, boring jog. Plus, you can do it anywhere - no fancy gym needed. Say goodbye to excuses and hello to that post-workout endorphin high! 🙌 And bonus, HIIT keeps your metabolism revved up even after you’re done sweating, so you’ll be burning those fries you had for lunch all day long! So lace up those sneakers, blast your fave tunes, and get ready to crush it with some killer HIIT workouts. Your future self will thank you! 💥 #HIITitUp #SweatSesh #FitFam
