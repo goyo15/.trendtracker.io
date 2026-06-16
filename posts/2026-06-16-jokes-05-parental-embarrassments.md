@@ -1,0 +1,5 @@
+# Parental Embarrassments — 2026-06-16
+
+Ugh, parents can be the ultimate cringe factory, am I right? I mean, they just love to embarrass us at any given moment. Whether it’s busting out their “cool” dance moves in public, using outdated slang or worse, sharing cringey baby photos on social media. It’s like they have an innate ability to make our faces turn as red as a tomato. And don’t even get me started on their attempts at being “hip” with the latest trends. It’s like, Mom, please stop trying to use TikTok dances to relate to me.
+
+But as much as they make us want to crawl into a hole and never come out, we have to remember that deep down, they just want to show their love and support. So, the next time they embarrass us in front of our friends, let’s try to cut them some slack (but also plot our revenge for when we’re older and have kids of our own).

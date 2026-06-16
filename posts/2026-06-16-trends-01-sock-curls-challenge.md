@@ -1,0 +1,3 @@
+# Sock Curls Challenge — 2026-06-16
+
+Hey babes, is anyone else tired of the same old hair routines? Well, get ready to shake things up with the Sock Curls Challenge! All you need are some clean socks and a little bit of patience. Wrap small sections of your hair around the socks and secure them in place before hitting the hay. Wake up with gorgeous, heatless curls that will have everyone asking for your secrets. Get creative with different sizes of socks for different curl styles - the bigger the sock, the bigger the curl! So say goodbye to damaging heat tools and hello to effortless, bouncy curls. Tag your girls and join the sock curl revolution today! #SockCurlsChallenge #HairGameStrong 💁‍♀️✨

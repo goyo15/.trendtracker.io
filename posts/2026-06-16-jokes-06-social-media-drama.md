@@ -1,0 +1,5 @@
+# Social Media Drama — 2026-06-16
+
+Hey, fam! Let's spill the tea on social media drama, 'cause let's be real - it's everywhere! Whether it's shady subtweets, Instagram beef, or Facebook call-outs, drama seems to be a core feature of our online lives. But here's the scoop: while it might be entertaining to watch from the sidelines, getting caught up in the drama is like stepping into a snake pit.
+
+Think about it - all that negative energy can seriously mess with your vibe. Plus, do you really want to be known as the drama queen or king of the internet? Nah, didn't think so. Instead, focus on spreading positivity, uplifting others, and keeping your online presence drama-free. Remember, you're too busy slaying in real life to waste time on unnecessary online drama. So, stay woke, stay classy, and stay drama-free, fam! Peace out ✌️ #NoTimeForDrama #DramaFreeZone
