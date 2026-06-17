@@ -1,0 +1,5 @@
+# VSCO Girl - Known for oversized shirts, Birkenstock sandals, scrunchies, and environmentally-friendly accessories like metal straws. — 2026-06-17
+
+Hey fam, let's talk about the VSCO girl trend that’s blowing up the 'gram right now. These girls are all about the oversized shirts, Birkenstock sandals, scrunchies, and those stylish metal straws for sipping their Starbucks drinks. Not gonna lie, their aesthetic is totally giving me those carefree, beachy vibes. 🌊🌞
+
+But there's more to it than just the look - VSCO girls are all about that eco-friendly lifestyle. They're all about saving the sea turtles and making sustainable choices. And hey, I'm all for that! It's rad to see a trend that's not just about looking cute, but also making a positive impact on the world. So let's grab our Hydro Flasks, slap on some friendship bracelets, and embrace our inner VSCO girl vibes. Stay groovy, y'all! ✌️ #SaveTheTurtles #VSCOgirl #SustainableSlay

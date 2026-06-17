@@ -1,0 +1,5 @@
+# Working from home and Zoom meeting jokes — 2026-06-17
+
+Hey there, fellow Zoom warriors! Let’s talk about working from home and the endless stream of Zoom meetings that come with it. Seriously, I think I spend more time adjusting my camera angle than actually working. And don’t even get me started on the awkward Zoom meeting jokes. It’s like a competition to see who can have the most cringeworthy background or accidentally hit the mute button at the worst possible moment.
+
+But hey, we’ve gotta find humor in the chaos, right? Whether it’s secretly wearing pajama pants or pretending to listen while actually scrolling through TikTok, we’re all just trying to survive the endless virtual meetings. So next time you’re in a Zoom call, embrace the chaos and maybe even crack a joke or two. Who knows, maybe you’ll actually make your coworkers laugh instead of just seeing them awkwardly unmute themselves to fake a chuckle. Stay Zoomin’, my friends!

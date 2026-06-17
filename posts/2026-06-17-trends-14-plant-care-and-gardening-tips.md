@@ -1,0 +1,3 @@
+# Plant care and gardening tips — 2026-06-17
+
+Hey plant pals! 🌿 Ready to elevate your gardening game? Here are my top plant care tips for turning your space into a green oasis! First up, light is key. Check the sunlight needs of your plants and place them accordingly. No sun? No problem! Opt for low-light plants like pothos or snake plants. Next, let’s talk watering. Remember, overwatering is the enemy. Stick your finger in the soil—dry? Water it! Wet? Let it be. And don’t forget to shower your plants with love (and the occasional mist). Finally, give them some space to stretch their roots with repotting when they outgrow their current home. Show your plants some TLC and watch them thrive! Now go forth and greenify, my friends! 🌱 #PlantParentLife #GreenThumbTribe
