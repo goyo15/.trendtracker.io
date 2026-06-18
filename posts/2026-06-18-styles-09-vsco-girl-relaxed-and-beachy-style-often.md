@@ -1,0 +1,5 @@
+# VSCO Girl - Relaxed and beachy style often associated with environmentally conscious choices. — 2026-06-18
+
+Hey babes, let's talk about the VSCO girl trend - beachy vibes and eco-conscious choices, what's not to love? From the oversized t-shirts to the scrunchies and Birkenstocks, it's all about keeping it chill and riding those good vibes. Want to save the turtles? Metal straws and reusable water bottles are a must-have accessory. And don't forget the Hydro Flask - gotta stay hydrated while looking cute, am I right?
+
+But let's be real, being a VSCO girl isn't just about the looks - it's also about making a positive impact on the world. We're all about that #savetheplanet life, whether it's saying no to single-use plastics or supporting sustainable brands. So let's rock those messy buns, embrace the natural beauty, and show the world that being stylish can also be eco-friendly. Stay salty, my friends. #VSCOgirlforlife 🌊🌞🐢✌️
