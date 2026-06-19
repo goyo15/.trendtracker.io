@@ -1,0 +1,5 @@
+# Slang and trendy phrases — 2026-06-19
+
+Hey fam, let’s talk about slang and trendy phrases! We’re living in a world where language is constantly evolving, and it’s so crucial to stay in the loop with all the hip new lingo. Whether you’re 'flexing', 'spilling the tea', or saying someone is 'extra', using trendy phrases gives our speech major flavor. It’s like adding sprinkles to your ice cream - it just makes everything more fun and exciting! 
+
+But hey, let’s remember that slang is all about context. Some words might be cool with your squad, but not so much with your grandma. Keeping things respectful and appropriate is always a good look. So keep on vibing with the latest phrases, just make sure you’re using them in the right place and time. Stay woke, stay fresh, and keep slaying those words, fam! #SlangSquad #TrendyTalks

@@ -1,0 +1,5 @@
+# Relationships and crush jokes — 2026-06-19
+
+Hey fam! Let's talk about relationships and crush jokes. Look, we all love to joke around with our crushes, right? It’s a fun way to break the ice and show our playful side. But here’s the tea – we gotta be careful not to take it too far. Making jokes that could hurt someone’s feelings or cross the line isn’t cool. Respect is key, y’all!
+
+So next time you’re hanging out with your crush, keep the jokes light and flirty. Let’s keep it fun and lighthearted, without causing any drama. Remember, a little laughter goes a long way in building a connection. And if your crush isn’t vibing with the jokes, no worries. Just keep it chill and be yourself. After all, being genuine is always the move. Stay true, stay classy, and keep the crush jokes cute, not crude. 💁‍♀️✨ #CrushJokes101 #RelationshipGoals
