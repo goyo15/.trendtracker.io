@@ -1,0 +1,5 @@
+# Popular TV shows and movies — 2026-06-20
+
+Hey fam, let’s spill the tea on popular TV shows and movies that are totally trending right now! 🍿📺 From the mysterious twists of "Stranger Things" to the fierce drama of "Riverdale", there’s something for everyone to binge-watch. And don’t even get me started on the superhero craze with the Marvel Cinematic Universe – those movies are straight fire! 💥 But let’s not forget the classic feel-good vibes of "Friends" and the nostalgia of "Harry Potter" that never gets old.
+
+Whether you’re into intense thrillers, heartwarming comedies, or epic action flicks, there’s no shortage of entertainment popping off. So grab your popcorn, snuggle up in your cozy blanket, and get ready to escape into some seriously lit worlds of adventure and drama! 🎥✨ What are your fave shows and movies right now? Spill in the comments below! #PopCultureQueen #TVandMoviesMadness 🌟👑
