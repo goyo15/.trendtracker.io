@@ -1,0 +1,5 @@
+# Cottagecore aesthetics — 2026-06-21
+
+Hey, all you trendsetters out there! Let’s talk about Cottagecore aesthetics – the dreamy, rustic vibe that’s taking over our social media feeds. Picture this: peaceful countryside scenes, cozy cottages with wildflower gardens, and vintage inspired fashion that’s equal parts chic and whimsical. We’re talking flowy dresses, straw hats, and lace-up boots that give off major fairy-tale vibes.
+
+Embracing Cottagecore is all about connecting with nature, slowing down, and creating a sense of nostalgia for simpler times. It’s the perfect escape from the hustle and bustle of modern life. Whether you’re sipping tea on a sunlit porch, picnicking in a field of flowers, or crafting handmade treasures, Cottagecore is all about finding beauty in the small things. So, grab your besties, head to the countryside, and immerse yourself in the magic of Cottagecore – because sometimes, getting back to basics is the most fashionable choice of all! 🌿🌻 #CottagecoreVibes

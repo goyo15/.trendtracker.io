@@ -1,0 +1,5 @@
+# "Hype House vs. Sway House" - A playful rivalry trend where fans choose between the two popular TikTok creator houses, Hype House and Sway House. — 2026-06-21
+
+Hey guys, let’s talk about the ultimate showdown - Hype House vs. Sway House! 🌟🔥 It’s like choosing between two bomb TikTok parties and deciding which one you wanna vibe with. The Hype House is all about those dance challenges and lip-syncing vibes, run by the queen herself Addison Rae. On the other side, we have the Sway House, known for their pranks and epic bromance moments, led by Bryce Hall. 
+
+So, are you Team Hype or Team Sway? It’s a playful rivalry that’s got TikTok fans buzzing with excitement. Some are here for the Hype House drama, while others can’t get enough of the Sway House shenanigans. Let’s be real, both houses know how to bring the heat and keep us entertained for days. Whether you’re into Hype’s glam or Sway’s chaos, one thing’s for sure - this rivalry trend is the definition of TikTok drama done right. Let the battle of the houses begin! 💥✨ #HypeHouse #SwayHouse #TikTokTrends

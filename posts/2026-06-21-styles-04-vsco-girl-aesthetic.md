@@ -1,0 +1,5 @@
+# VSCO girl aesthetic — 2026-06-21
+
+Hey fellow trendsetters! Let's talk about the VSCO girl aesthetic that's taken over social media and our closets. From oversized t-shirts and scrunchies to Hydro Flasks and metal straws, this trend is all about embracing a laid-back, eco-conscious vibe. But let's be real, are we really helping the planet by jumping on this bandwagon or just following a fad? Sure, looking cute with our shell necklaces and Birkenstocks is fun, but let's not forget the bigger picture.
+
+Don't get me wrong, I'm all for self-expression and rocking our unique styles, but let's also make a real impact by taking concrete actions towards sustainability. So, keep rocking those messy bun hairdos, but maybe consider swapping out that new trendy outfit for some thrifted gems. Let's strive to be more than just VSCO girls, let's be VSCO girls with a purpose. Peace, love, and save the turtles.✌️🐢 #VSCOgirl #SustainabilityMatters 🌎✨
