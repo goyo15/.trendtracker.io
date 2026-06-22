@@ -1,0 +1,5 @@
+# Social media mishaps and funny encounters — 2026-06-22
+
+Hey, fam! Let’s dish about social media mishaps and the LOL-worthy encounters we’ve all been through. 😂 We’ve all been there, accidentally liking our crush’s post from three years ago or sending a text to the wrong group chat. Awkward! And don’t even get me started on the infamous autocorrect fails – “duck” instead of, well, you know the drill. But hey, at least those moments make for hilarious stories later on!
+
+Let’s not forget about the unexpected friend requests from random accounts or getting tagged in embarrassing photos from that one party you don’t even remember attending. It happens to the best of us! So next time you find yourself in a social media pickle, just remember that we’ve all been there and it’s all part of the rollercoaster ride of online life. Embrace the mishaps, laugh it off, and remember that perfection is overrated – flaws and all, we’re still slaying the social media game! 💁🏼‍♀️ #SocialMediaFails #JustTeenThings
