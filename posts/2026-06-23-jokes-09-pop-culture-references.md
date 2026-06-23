@@ -1,0 +1,3 @@
+# Pop culture references — 2026-06-23
+
+Hey, peeps! Let’s talk about pop culture references ‘cause they’re like, everywhere, am I right? From TV shows to music to memes, they’re the secret language of our generation. They add spice to our convos and make us feel all ~in the know~. Whether it’s dropping a “That’s what she said” a la The Office or shouting “Yas queen!” like the fierce diva you are, pop culture refs are our way of bonding and showing off our rad taste. Plus, they make everyday moments way more fun and relatable. So next time you drop a clever reference, watch the faces of confusion turn into smiles of recognition. Stay sharp, stay witty, and keep those pop culture refs flying like confetti at a concert. Peace out!✌️ #PopCultureFTW #StaySnappy
