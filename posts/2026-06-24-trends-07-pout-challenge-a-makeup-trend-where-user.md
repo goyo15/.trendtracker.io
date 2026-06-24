@@ -1,0 +1,5 @@
+# Pout Challenge - A makeup trend where users showcase their lip-plumping techniques to achieve fuller lips. — 2026-06-24
+
+Hey babes! 💋 Today I’m diving into the latest makeup trend making waves on social media - the Pout Challenge! 😚 This fierce trend is all about showcasing your lip-plumping techniques to rock those killer fuller lips. Whether you’re into overlining, lip gloss, or even DIY plumping hacks, there are endless ways to achieve that perfect pout. 💄✨
+
+But hey, let’s keep it real - there’s no need to conform to beauty standards just to take part in this trend. Embrace your natural beauty and remember that confidence is the best accessory! 💁‍♀️ So whether you’re a makeup newbie or a pro artist, have fun experimenting with different looks and owning your unique style. Ready to pucker up and show off your plumping skills? Let’s get glam and slay the Pout Challenge! 💁‍♀️💄💋 #PoutChallenge #OwnYourBeauty
