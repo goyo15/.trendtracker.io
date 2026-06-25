@@ -1,0 +1,5 @@
+# Pop culture references and celebrity jokes — 2026-06-25
+
+Hey, fam! Let's spill the tea ☕ on pop culture references and celebrity jokes! 🌟 From throwing shade at the Kardashians to roasting the latest TikTok trends, pop culture references are a must-have in our conversations. 📺 Whether we're LOL-ing at a meme of our fave celeb or creating our own viral moments, pop culture keeps us shooketh! 💥
+
+Celebrity jokes? 🤣 They're the cherry on top of our Twitter feeds! We love poking fun at celebs' mishaps and iconic moments. It's all in good fun, right? 😜 From making memes of Taylor Swift's latest breakup to reenacting a viral dance challenge by Beyoncé, we live for these jokes! 💃 So, keep those references coming and keep those celeb jokes on point. Let's keep the pop culture party going and slay all day! 🔥 #PopCultureQueen #CelebrityRoast
