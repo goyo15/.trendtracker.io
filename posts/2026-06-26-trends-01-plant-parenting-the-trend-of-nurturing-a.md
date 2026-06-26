@@ -1,0 +1,5 @@
+# Plant parenting - The trend of nurturing and sharing houseplants has gained significant popularity among Gen Z on TikTok, with videos showcasing plant care tips and plant hauls. — 2026-06-26
+
+Hey plant parents! 🌿🌟 It’s time to get your green thumbs ready because plant parenting is the new hype among us Gen Zers on TikTok and it's growing faster than a Monstera in optimal light! 🌱💚 From trading cuttings to sharing hauls, we're all about spreading the leafy love and showing off our thriving plant babies like proud mamas. 🌿✨
+
+With videos overflowing with plant care hacks and stylish pots inspo, our feeds are turning into virtual greenhouses! 📱🌿 And let's be real, nothing screams aesthetic more than a string of pearls hanging in a sunlit corner, am I right? 🌿☀️ So, grab your watering can and get those plant shelves Insta-ready because we're taking plant parenting to a whole new level! 💚🌿 #PlantParentingGoals #GreenThumbGenZ

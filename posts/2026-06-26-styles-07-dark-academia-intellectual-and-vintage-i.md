@@ -1,0 +1,5 @@
+# Dark academia - Intellectual and vintage-inspired fashion with tweed blazers, turtlenecks, pleated skirts, and loafers. — 2026-06-26
+
+Hey there, bookworms and fashionistas! Let's dive into the sophisticated world of Dark Academia style, where classic meets cool. Picture this: strolling through old libraries in tweed blazers, rocking turtlenecks like a boss, twirling in pleated skirts, and strutting in timeless loafers. It's all about that vintage-inspired vibe with a touch of intellect. 📚✨
+
+Whether you're a Shakespeare enthusiast or just love the cozy autumn aesthetic, Dark Academia fashion is the way to go. Embrace those neutral tones, embrace those layers, and don't forget your trusty pair of round glasses. It's all about looking like you stepped out of a classic novel while feeling confident and ready to conquer the world. So, grab your favorite poetry book, cozy up with a cup of tea, and let's dive into the enchanting world of Dark Academia style. Class dismissed! 🍂📖 #DarkAcademia #VintageVibes

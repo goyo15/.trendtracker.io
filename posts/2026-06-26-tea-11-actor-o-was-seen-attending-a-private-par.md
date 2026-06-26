@@ -1,0 +1,5 @@
+# Actor O was seen attending a private party with several other celebrities, causing buzz about potential new friendships. — 2026-06-26
+
+OMG, you know I live for the tea on celebrity friendships, and let me tell you, things are heating up in Hollywood! Actor O was spotted at a super exclusive private party rubbing shoulders with some major A-listers, and now the gossip mills are working overtime. Could this be the start of some epic new friendships forming in Tinseltown? 👀🌟
+
+I mean, we love a good Hollywood squad, and if Actor O is cozying up to these celebs, you know we'll be keeping a close eye on their every move. From red carpet events to cozy brunch dates, I'm already dreaming up all the chic squad pics we're about to see on their Insta feeds! So, stay tuned, my fellow gossip lovers, because this party could be the beginning of the hottest new squad in town. 🔥💫 #HollywoodGossip #NewSquadGoals

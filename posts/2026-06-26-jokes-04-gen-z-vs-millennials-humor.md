@@ -1,0 +1,5 @@
+# Gen Z vs. Millennials humor — 2026-06-26
+
+Hey, fellow teens, let’s talk about the clash of humor between Gen Z and Millennials! Seriously, it’s like comparing TikTok to Vine - totally different vibes. While Millennials love their memes and pop culture references, Gen Z is all about absurd, self-deprecating humor and savage roasts. It’s like Millennials are the older siblings trying to be cool, but Gen Z is just out here inventing new slang and creating meme culture. 
+
+Let’s be real, Millennials might have started the meme game, but Gen Z took it to a whole new level with their quick wit and relatable content. From VSCO girls to OK Boomer, Gen Z humor is next level and unapologetically savage. So, sorry Millennials, but Gen Z has definitely won the battle of humor. But hey, at the end of the day, humor is humor, and we can all laugh together, right? Keep the memes coming, fam! 🤣✌️ #GenZfortheWin #SavageHumor #LaughItUp

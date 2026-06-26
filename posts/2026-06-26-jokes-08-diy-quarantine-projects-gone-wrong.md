@@ -1,0 +1,5 @@
+# DIY quarantine projects gone wrong — 2026-06-26
+
+Hey fam, let’s talk about DIY quarantine projects gone wrong – because not every Pinterest idea turns out insta-worthy. 🤦‍♀️ I’m all for getting crafty during the lockdown, but let’s just say my attempt at tie-dying my old t-shirts ended up more of a hot mess than a high fashion statement. And don’t even get me started on the homemade face masks that ended up looking like a sock puppet on my face. 🙈
+
+But hey, that’s the beauty of DIY projects – sometimes they flop, but you still get a good laugh out of it. Just remember, not every experiment is gonna turn out picture perfect, and that’s totally okay. So keep on creating, keep on trying new things, and most importantly, keep on embracing the imperfections. Who knows, maybe your next project gone wrong will turn into a hilarious story to share with your friends. Stay creative, stay positive, and stay DIY-ing, my peeps. ✌️ #DIYFail #QuarantineLife

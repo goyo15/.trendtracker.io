@@ -1,0 +1,5 @@
+# Athleisure - Combining athletic wear with casual outfits, featuring leggings, crop tops, sports bras, and sneakers for a comfortable yet stylish look. — 2026-06-26
+
+Hey babes and bros! Let’s talk about the hottest trend hitting the streets – Athleisure! 💥 It’s all about rocking those leggings, crop tops, sports bras, and sneakers outside the gym and looking fierce while doing it. Who says you can’t be comfy and stylish at the same time?! It’s all about that balance, am I right? 💁‍♀️
+
+Throw on a pair of high-waisted leggings, a cropped hoodie, and some fresh kicks, and you’ve got yourself a killer Athleisure look that’s perfect for hitting the mall, grabbing a smoothie, or just chilling with your squad. And let’s not forget the power of a sports bra worn as a top – instant cool-girl vibes! Trust me, Athleisure is the move for slaying both your workout and your street style game. So next time you’re getting dressed, think outside the gym bag and rock that athletic wear like the fashion icon you are! 🔥 #AthleisureGoals
