@@ -1,0 +1,5 @@
+# Self-care routines gone wrong — 2026-06-27
+
+Hey fam, let’s talk about self-care routines gone wrong. We all love a good pamper sesh, but let me tell you, sometimes things don’t go according to plan. Like that one time I tried a DIY face mask and ended up looking like a red tomato for days. Or when I decided to meditate and ended up falling asleep instead. And don’t even get me started on the time I tried a new workout routine and pulled a muscle. Ouch!
+
+Listen, self-care is important, but it’s all about finding what works for you. So, maybe skip the crazy Pinterest hacks and stick to the basics. Remember to take time for yourself, whether it’s a bubble bath, a good book, or just chilling with your fave playlist. Self-care is supposed to make you feel good, not stressed out or injured. So, learn from my mishaps and keep it real, keep it simple, and keep it safe. Stay sassy, stay safe, and stay fabulous! 💁‍♀️💅🛁 #SelfCareGoneWrong #LessonsLearned
