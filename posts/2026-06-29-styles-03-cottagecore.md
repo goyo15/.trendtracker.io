@@ -1,0 +1,5 @@
+# Cottagecore — 2026-06-29
+
+Hey, fellow teens! Let’s talk about the trend that’s taking over our feeds – Cottagecore. 🌿🌸 If you’re into cozy vibes, flower crowns, and all things nature, then Cottagecore might just be your new aesthetic obsession. Picture this: rolling green hills, charming cottages, and a whole lot of vintage-inspired fashion. It’s like stepping into a fairytale, but make it Instagram-worthy. 🏡✨
+
+Whether you’re baking bread, frolicking in flower fields, or just daydreaming about life in a quaint little cottage, Cottagecore is all about embracing the simple pleasures of country living. It’s a vibe, it’s a mood, it’s a lifestyle. So grab your basket, put on your flowy dress, and escape to a world where everything is whimsical and oh-so-pretty. Cottagecore is the perfect blend of nostalgia and dreaminess, and it’s definitely here to stay. Embrace the cottage life, my friends! 🌷💫 #CottagecoreDreams #NatureVibes

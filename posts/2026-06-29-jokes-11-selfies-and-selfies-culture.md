@@ -1,0 +1,5 @@
+# Selfies and selfies culture — 2026-06-29
+
+Hey, fellow teens! Let’s talk about selfies, the ultimate form of self-expression in today’s world. From perfectly angled shots to spontaneous moments, selfies are all about capturing our best selves and sharing them with the world. But let’s not get too caught up in the selfie culture, where likes and filters determine our worth. Remember, behind every flawless selfie is a real person with imperfections and struggles just like everyone else.
+
+Sure, selfie-taking can be fun and empowering, but it’s important to not let it define our self-worth. So, snap away, but also take time to appreciate the unfiltered moments and the beauty of simply being yourself. Let’s celebrate our uniqueness both on and off the screen. Because at the end of the day, the most important thing is loving yourself, flaws and all. Keep shining, selfie queens and kings! 📸✨ #SelfieCulture #BeYourself
