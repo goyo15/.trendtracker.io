@@ -1,0 +1,5 @@
+# Self-care and mental health humor — 2026-07-01
+
+Hey, fam! Let’s talk about the power of self-care and mental health humor – because sometimes we just need to laugh through the tough stuff, am I right? It’s important to take care of ourselves mentally and emotionally, and sometimes that means finding the humor in our struggles. Whether it’s sharing relatable memes, watching funny videos, or cracking jokes with friends, finding moments of laughter can be a great form of self-care.
+
+Let’s be real, life can be pretty stressful, so why not lighten the mood with a good ol' laugh? Remember, it’s okay not to be okay all the time, and finding humor in our experiences can help us feel a little bit better. So next time you’re feeling overwhelmed, take a break, chuckle at a funny meme, and remember that it’s all a part of the journey. Stay awesome, stay laughing, and take care of yourselves, fam! Peace out ✌️ #SelfCareSunday #MentalHealthHumor 😂💖🌟
