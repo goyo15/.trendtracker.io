@@ -1,0 +1,5 @@
+# E-girl/E-boy style - Known for edgy makeup, colorful hair, and a mix of grunge and anime influences. — 2026-07-02
+
+Hey fam, let’s talk E-girl and E-boy style! 🖤💜 If you’re all about that edgy makeup, colorful hair, and vibin’ on a mix of grunge and anime influences, then you’re totally on trend! 🌈💀 Whether you’re rocking dark eyeliner, bold lip colors, or experimenting with wild hairstyles, this style is all about expressing your unique, fierce self! 🦋✨ 
+
+And let’s not forget about those killer outfits - think oversized hoodies, plaid skirts, and chunky boots to complete the look. 🖤🤘 Whether you’re dressing up for a TikTok video or just slaying the school halls, owning your E-girl/E-boy style is all about confidence and individuality. Remember, there are no rules when it comes to fashion – just do you and rock it with pride! Stay fierce, stay fabulous, and keep slaying those looks! 🌟🔥 #Egirl #Eboy #FashionForward
