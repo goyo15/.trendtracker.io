@@ -1,0 +1,5 @@
+# Music industry drama — 2026-07-05
+
+Hey, fam! Let’s talk about the latest music industry drama that’s got everyone shook. 🎤 Whether it’s celeb feuds, album delays, or shady collaborations, the drama never sleeps in the music biz. 🎵 And let’s be real, we live for the gossip! 💁‍♀️ Who’s shading who on Twitter? Which artist just dropped a surprise diss track? It’s like a never-ending reality show, and we can’t get enough. 😂
+
+But amidst all the tea-spilling, let’s not forget the actual music! 🎶 Despite the drama, there’s always some fire tracks and killer performances to keep us coming back for more. So while we love a good scandal, at the end of the day, it’s all about the music, right? Keep blasting those tunes, fam, and stay tuned for the next episode of music industry drama! 💥 #PopStarProbs #DramaAlert

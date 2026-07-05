@@ -1,0 +1,3 @@
+# Celebrity breakups and hookups — 2026-07-05
+
+Hey fam, let's spill the tea on the latest celebrity breakups and hookups! 🍵💔 First up, did you hear about the messy split between [Celeb #1] and [Celeb #2]? Drama alert! 👀 But on the bright side, love is in the air for [Celeb #3] and [Celeb #4] - they're the new power couple giving us major heart-eyes vibes! 😍 Who's shipping them already? 🚢💕 And let's not forget the steamy fling between [Celeb #5] and [Celeb #6] that has everyone talking! 🔥 Whether it's heartbreak or romance, the celeb world never fails to keep us on our toes. So grab your popcorn, stay tuned for the latest goss, and remember: in Hollywood, love is always a rollercoaster ride! 🎢✨ #CelebLoveLife #BreakupsAndHookups #SpillTheTea

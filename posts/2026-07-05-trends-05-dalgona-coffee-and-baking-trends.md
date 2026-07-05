@@ -1,0 +1,5 @@
+# Dalgona coffee and baking trends — 2026-07-05
+
+What’s the deal with Dalgona coffee and all the baking trends taking over our feeds lately? Is it just another fleeting craze, or is there something deeper going on here? As someone who's tried their fair share of whipped coffees and sourdough bread recipes, I have to say, there's something oddly satisfying about the process.
+
+Maybe it’s the sense of accomplishment from creating something beautiful and delicious from scratch, or maybe it’s just the perfect distraction from the chaos of the world right now. Whatever it is, one thing’s for sure – we’re all in it together, whisk in hand, ready to conquer the next baking challenge that comes our way. So, whether you’re a seasoned pro or a newbie in the kitchen, let’s embrace these trends and bake our hearts out. Who knows, maybe we’ll discover a new passion or just enjoy a damn good cup of coffee in the process. Cheers to the baking adventures ahead!
