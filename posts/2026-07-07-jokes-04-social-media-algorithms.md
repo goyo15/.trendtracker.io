@@ -1,0 +1,5 @@
+# Social media algorithms — 2026-07-07
+
+Hey, fam! Let’s talk about the sneaky social media algorithms that are low-key controlling our feeds. 📱💻 Have you ever noticed that your timeline is filled with stuff you might not even be interested in? Yeah, that’s not a coincidence, sis. These algorithms are serving up content based on what you engage with, like, and comment on. It’s like they’re trying to predict our every move! 👀
+
+But don’t stress, fam! We can outsmart these algorithms by being intentional about what we interact with. Follow accounts that inspire you, like posts that bring positivity to your day, and leave comments that add value to the conversation. Don’t let algorithms dictate what you see - take charge of your feed! 💪 Remember, you’re in control of what you consume online, so make sure it’s content that uplifts and empowers you. Stay woke, fam! ✨ #AlgorithmBeGone #StayInControl

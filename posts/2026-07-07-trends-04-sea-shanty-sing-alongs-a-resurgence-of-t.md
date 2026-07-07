@@ -1,0 +1,5 @@
+# Sea Shanty Sing-Alongs - A resurgence of traditional sea shanties being reimagined and shared on TikTok. — 2026-07-07
+
+Hey hey, all you landlubbers and sea dogs out there! 🌊⚓️ Have you heard about the newest TikTok trend making waves? That's right, sea shanty sing-alongs are back and better than ever! These traditional sailor songs are getting a modern twist with remixes and catchy covers that will have you tapping your feet and belting out the tunes like a true pirate of the high seas. ⛵️🎶
+
+From old classics like "Drunken Sailor" to new takes on "Wellerman," TikTok is the place to be for all your sea shanty needs. It's amazing to see how music from centuries ago is getting a fresh revival with a younger generation on social media. So next time you're scrolling through TikTok, why not join in on the sea shanty fun and let your inner sailor out to play? Ahoy, mateys, let's set sail on this musical adventure together! 🏴‍☠️🎵 #SeaShanty #TikTokTunes #SailAway
