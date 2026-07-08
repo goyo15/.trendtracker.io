@@ -1,0 +1,5 @@
+# Sock Curls tutorial: TikTok users are trying out the sock curls hair styling method, resulting in natural-looking curls without heat damage. — 2026-07-08
+
+Hey all you trend-setters out there, have you heard about the latest hair styling hack taking TikTok by storm? That’s right, we’re talking about sock curls! No, not the ones your grandma knits, but the DIY curling method that’s all the rage with beauty enthusiasts. TikTok users are ditching their curling irons and embracing the effortless, heat-free curls achieved by simply wrapping sections of hair around socks and leaving it overnight. 
+
+I tried it out myself, and let me tell you - the results are legit! Say goodbye to damaging your locks with hot tools, because sock curls give you those natural, bouncy waves without any heat damage. Plus, it’s super easy and budget-friendly. So grab those old socks, roll up your sleeves (or socks), and join the sock curls revolution. Trust me, your hair will thank you. #SockCurls #HairHack #TikTokTrend

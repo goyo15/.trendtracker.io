@@ -1,0 +1,3 @@
+# 90s grunge revival — 2026-07-08
+
+Hey all you cool cats and kittens! 🐱 Let’s talk about the ultimate throwback trend that’s making a killer comeback - 90s grunge. 🤘 From Nirvana vibes to flannel shirts and combat boots, the grunge revival is taking over our closets and playlists. And let me tell you, rocking the grunge look is EVERYTHING right now. 👀 Get ready to channel your inner angsty teen with ripped jeans, band tees, and messy hair that says "I don’t care, but actually I do". 🖤 The best part? You can thrift your way to the perfect grunge wardrobe without breaking the bank. So blast some Pearl Jam, embrace the moody vibes, and let’s make the 90s proud with our edgy, retro style. Stay rad, my fellow grunge enthusiasts! ✌️ #GrungeRevival #90sVibes #StayEdgy
