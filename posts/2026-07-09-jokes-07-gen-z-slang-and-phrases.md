@@ -1,0 +1,5 @@
+# Gen Z slang and phrases — 2026-07-09
+
+Hey fam, let’s talk about Gen Z slang and phrases that are taking over the internet! From “sksksk” to “And I oop”, our generation is not playing when it comes to inventing new ways to communicate. Whether we’re “flexing” our latest fit or “spilling the tea” on drama, our lingo is constantly evolving and keeping everyone else on their toes. 
+
+With phrases like “no cap” to express honesty and “lit” to describe something amazing, our vocabulary is truly one-of-a-kind. And let’s not forget about “vibing” with someone or “ghosting” when we need a break – we’ve got a word for every situation. So, next time you hear us using some quirky slang, just remember, we’re just trying to keep it 💯 and stay ahead of the game. Stay woke, my fellow Gen Z-ers! #Slay #YasQueen🔥✌️
