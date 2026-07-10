@@ -1,0 +1,5 @@
+# Glam rock - Glamorous and theatrical fashion inspired by rock icons with sequins, leather, and bold makeup. — 2026-07-10
+
+Hey glam rock lovers! 💫✨ If you're all about channeling your inner rock star with some serious sparkle and flair, then you've landed in the right place. Glam rock fashion is all about being bold, flashy, and unapologetically fabulous. Think sequins, leather, bold makeup, and a whole lot of attitude. This style is inspired by rock icons who knew how to steal the show with their over-the-top outfits and fearless personalities.
+
+Whether you're rocking a sequined jumpsuit, leather jackets, or platform boots, glam rock fashion is all about making a statement and owning your unique style with confidence. So, grab your glitter, crank up the tunes, and let your inner glam rock star shine brighter than ever before. Because in a world full of basic outfits, why blend in when you were born to stand out? Stay glam, darlings! 💋🎸 #GlamRockStyle #ShineBrightLikeAGlamRockStar
