@@ -1,0 +1,7 @@
+# "Buss It Challenge" - A dance challenge where participants transition from casual attire to glam while dancing to the song "Buss It" by Erica Banks. It went viral for its transformation and humor elements. — 2026-07-11
+
+Hey hey, fam! Have y'all seen this "Buss It Challenge" taking over the internet?! 😱 Let me break it down for ya real quick - it's a dance challenge where peeps start off lookin' all chill in their PJs or sweats, then BAM 💥 they drop it low and transform into full-on glam mode while twerkin' to Erica Banks' banger "Buss It." 💄🔥 Seriously, the glow-up is REAL with this one!
+
+I gotta admit, watching folks go from zero to 💯 in a matter of seconds is both hilarious and impressive. And the memes that have come out of this challenge? Pure gold, y'all. 🤣 From spilling cereal in their loungewear to struttin' their stuff in fierce heels, it's all about embracing the glow-up and having a good time.
+
+So, if you haven't tried the "Buss It Challenge" yet, what are you waiting for?! Grab your fave outfit, crank up the volume, and show the world your fierce transformation. Let's keep this viral trend going strong, 'cause why not? Stay slayin', my peeps! 💃🏻✨ #BussItChallenge #GlowUpGoals 🌟
