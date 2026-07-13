@@ -1,0 +1,5 @@
+# VSCO girl trend — 2026-07-13
+
+Okay, listen up, fam! Let’s talk about the VSCO girl trend that’s blowing up our feeds right now. From scrunchies to Hydro Flasks, these girls are all about the laid-back, beachy vibes. But hey, who wouldn’t wanna rock a cute oversized tee and some Birkenstocks, am I right? And let’s not forget those iconic phrases like “sksksk” and “and I oop”. It’s like a whole new language, y’all! 
+
+But honestly, the best part of being a VSCO girl is the eco-friendly mindset. I’m all about the reusable straws and saving our planet, you feel me? So next time you see a girl with a messy bun and some shell necklaces, don’t hate – appreciate that she’s just out here tryna save the turtles and live her best VSCO life. Go ahead, throw on those Fjallraven Kankens and get your VSCO on! SKSKSK, peace out!✌🏼

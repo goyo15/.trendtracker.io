@@ -1,0 +1,5 @@
+# Pet peeves and annoying habits — 2026-07-13
+
+Hey there, fellow peeps! Let’s get real - we all have those pet peeves and annoying habits that make our eyes roll so hard they almost get stuck. From people chewing with their mouths open to those who never reply to texts (like, seriously, are you too cool for manners?), the world is filled with tiny annoyances that drive us crazy. And don’t even get me started on people who talk during movies - hello, can you not see I’m trying to immerse myself in the cinematic masterpiece unfolding on screen?!
+
+But hey, it’s not all bad! Sometimes our pet peeves and annoying habits can be pretty hilarious (in a frustrating kind of way). So next time someone pushes your buttons, take a deep breath, roll your eyes, and remember - we’re all just trying to navigate this crazy world together. Stay sassy, friends! 🙄✨ #PetPeeves #EyeRollingEmoji

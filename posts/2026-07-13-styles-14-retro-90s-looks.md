@@ -1,0 +1,3 @@
+# Retro 90s looks — 2026-07-13
+
+Hey fam! Can we just take a moment to appreciate the awesomeness of retro 90s looks making a major comeback?! From scrunchies to mom jeans, it’s all about bringing those funky vibes back into our closets. I'm personally digging the plaid skirts, crop tops, and chunky sneakers that scream 90s coolness. And let's not forget about the mini backpacks and oversized denim jackets giving us all the Clueless vibes we could ever dream of. It's like playing dress-up in our mom's closet, but with a modern twist. So, grab your choker necklaces and slap bracelets, because the 90s are back and they're here to stay! Let's rock that retro style and slay the fashion game like it's 1999! 💁🏼‍♀️🔥#throwbackfashion #90sretro #slayinstyle
