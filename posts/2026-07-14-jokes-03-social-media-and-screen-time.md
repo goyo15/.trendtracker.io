@@ -1,0 +1,5 @@
+# Social Media and Screen Time — 2026-07-14
+
+Hey fellow teens! Let’s talk about social media and screen time - the ultimate double-edged sword of our digital world. We all love scrolling through Insta, TikTok, and Snap, but let’s not pretend it doesn’t come with its downsides. Spending hours glued to our screens can mess with our sleep, mental health, and even our IRL relationships. Trust me, FOMO is real, but missing out on real-life experiences because we’re too busy staring at our phones? Not worth it.
+
+So here’s the deal - let’s find balance. Set screen time limits, take breaks, and prioritize face-to-face interactions. It’s all about living in the now and not just through our screens. Oh, and PS: It’s totally okay to unfollow accounts that make you feel bad about yourself. Your mental health is top priority! So, put down your phone, go out and enjoy the world beyond the screen. Trust me, you won’t regret it. Stay connected, but don’t forget to connect with yourself and those around you too. Peace out! ✌️ #ScreenTimeStruggles #BalanceIsKey

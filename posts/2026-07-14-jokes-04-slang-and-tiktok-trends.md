@@ -1,0 +1,3 @@
+# Slang and TikTok Trends — 2026-07-14
+
+Hey fam, let’s spill the tea on slang and TikTok trends – the vibes are hitting differently these days! From “sis” and “bruh” to “sksksk” and “And I oop-”, we’re living for the lingo evolution. And don’t even get me started on the TikTok dances – they’re straight fire! Who else is still trying to perfect the Renegade or Savage Love? 💃🕺 TikTok trends come and go faster than my crush’s replies, but we stay hustling to keep up with the latest. It’s all about staying unproblematic and vibing with the trends that speak to us. So, keep flexing those TikTok skills and slay that slang game like the queen/king you are. Stay woke, stay fierce, and keep shining on the ‘Tok, fam! Let’s get this bread! 🙌🔥 #SlayAllDay #TikTokTrends #SlangGoals

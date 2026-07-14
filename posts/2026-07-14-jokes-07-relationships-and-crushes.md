@@ -1,0 +1,5 @@
+# Relationships and Crushes — 2026-07-14
+
+Hey, fam! Let’s chat about relationships and crushes - the ultimate rollercoaster of teen life. Crushes can make your heart race faster than running a mile in gym class, but relationships can be just as wild. Are they worth the drama? Absolutely. The ups and downs teach us about ourselves, what we want, and how we deserve to be treated. 
+
+But sometimes, crushes can be like a game of Flappy Bird - frustrating and hard to navigate. It’s important to remember that you’re a boss babe (or boss dude) no matter what. Whether you’re single, taken, or crushing from afar, never settle for less than you deserve. Be fierce, be true to yourself, and remember: you’re the main character in your own story. So, grab your popcorn, buckle up, and enjoy the ride - because in the end, it’s always worth it. Peace out, lovelies!✌️💖 #CrushinIt #RelationshipRealness
