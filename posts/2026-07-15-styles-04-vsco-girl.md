@@ -1,0 +1,5 @@
+# VSCO Girl — 2026-07-15
+
+Hey fam, let's talk about the VSCO Girl trend that's taking over the ‘gram! These girls are all about the scrunchies, oversized tees, and Hydro Flasks - can't forget the iconic "sksksk" and "and I oop" phrases! 🌺🤙
+But here's the tea - being a VSCO Girl isn't just about the aesthetics, it's also about caring for the environment. They're all about saving the turtles with their reusable straws, say no to single-use plastics, and always rockin' those Birkenstocks! 🐢🌎
+Some people might call them basic, but hey, at least they're doing their part to make the world a better place. And honestly, who doesn't love a good scrunchie and a laid-back vibe? Embrace your inner VSCO Girl, live that eco-friendly lifestyle, and remember, it's not just a trend, it's a movement. Stay sksksk-ing, my friends! 💚✌️ #SaveTheTurtles #VSCOGirl #NotJustATrend

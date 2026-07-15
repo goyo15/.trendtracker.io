@@ -1,0 +1,5 @@
+# Cottagecore — 2026-07-15
+
+Hey fellow teens! 🌿✨ Let’s talk about the dreamy trend that’s taking over social media - Cottagecore! 🏡🌻 For those of you who don’t know, Cottagecore is all about embracing a cozy, rustic aesthetic inspired by cottage living. Picture fields of wildflowers, vintage dresses, and baking homemade bread - it’s like stepping into a fairytale book! 🍞🌸
+
+Whether you’re into gardening, crafting, or simply enjoying nature, Cottagecore has something for everyone. It’s all about slowing down, appreciating the simple things in life, and creating your own little slice of paradise wherever you are. 🌈💫 So grab your straw hat, pick some daisies, and immerse yourself in the whimsical world of Cottagecore! Trust me, it’s the perfect escape from the chaos of the world right now. 🌿🌼 #CottagecoreVibes #CozyIsCool
