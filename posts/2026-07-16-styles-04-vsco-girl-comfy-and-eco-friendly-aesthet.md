@@ -1,0 +1,5 @@
+# VSCO Girl - comfy and eco-friendly aesthetic with oversized t-shirts, Birkenstocks, and scrunchies. — 2026-07-16
+
+Hey, VSCO girls! 🌈🌿 Let’s talk about the aesthetic that’s taking over our feeds – comfy, eco-friendly, and oh-so-chill. Oversized t-shirts, Birkenstocks, and scrunchies - it’s a whole vibe, am I right? Rocking that messy bun and saying “sksksk” like it’s our job. Let’s not forget the hydro flasks and metal straws – saving the turtles one sip at a time. 🐢💚
+
+But seriously, the VSCO girl trend isn’t just about the fashion, it’s about the message. Being eco-conscious and spreading positivity? That’s a major win in my book. So, grab your friendship bracelets and head out for a beach clean-up or star-gaze with your reusable straws. Let’s keep this vibe going and show the world that we care about our planet and each other. Stay comfy, stay cool, and keep being your awesome VSCO selves. ✌️💖 #SaveTheTurtles #VSCOgirlLife
