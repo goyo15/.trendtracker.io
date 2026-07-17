@@ -1,0 +1,5 @@
+# Selfies & filters — 2026-07-17
+
+Hey fam, let’s talk about selfies and filters – the ultimate duo of the social media world. Now, we all know the power of a good selfie, right? But throw in a killer filter and you’re basically a whole new person. Filters can smooth out your skin, give you glowing eyes, and even transport you to a dreamy paradise with the tap of a button. It’s like a mini makeover without any of the effort!
+
+But here’s the tea – don’t rely on filters to feel beautiful, babes. Embrace your flaws, your uniqueness, and your raw, unfiltered self. Confidence is always in trend, no Valencia or Juno needed. So snap those selfies, play with those filters, but always remember that the true glow-up comes from within. Stay real, stay fierce, and remember, #nofilterneeded. Peace out! ✌️📸 #selfiequeen
