@@ -1,0 +1,5 @@
+# Funny moments from TV shows and movies — 2026-07-18
+
+Hey, fellow pop culture junkies! Let's talk about those laugh-out-loud moments from TV shows and movies that have us rolling on the floor with tears streaming down our faces. From classic sitcoms like "Friends" and "The Office" to hilarious movies like "Superbad" and "Step Brothers," there are so many unforgettable funny moments that have become iconic. Remember that scene in "Friends" when Ross gets stuck in his leather pants or when Michael Scott declares bankruptcy on "The Office"? Absolute comedy gold!
+
+And let's not forget the epic one-liners and sight gags that have become instant classics. Whether it's Anchorman's "I love lamp" or Napoleon Dynamite's dance routine, there's no shortage of side-splitting moments that have us quoting them for years to come. So, grab some popcorn, snuggle up with your favorite blanket, and get ready to laugh your heart out as we relive these hilarious TV and movie moments that never fail to brighten our day. Drop your favorite funny moment in the comments below!

@@ -1,0 +1,5 @@
+# #SupportSmallBusiness - Gen Z on TikTok are rallying support for small businesses through shoutouts, product reviews, and shopping recommendations. This trend reflects a growing awareness of the challenges faced by small businesses and the importance of community support. — 2026-07-18
+
+Hey squad, have you heard about the latest trend taking over TikTok? That’s right, Gen Z is showing some major love for small businesses with the #SupportSmallBusiness movement! It’s all about giving shoutouts, posting product reviews, and sharing shopping recommendations to help these local gems thrive. 
+
+Our generation gets it - we know the struggles small businesses face, especially during these tough times. By spreading the word and encouraging our followers to shop small, we’re making a real impact. It’s all about building a community that supports each other, one purchase at a time. So next time you’re scrolling through TikTok, keep an eye out for those small business shoutouts and maybe discover your new fave shop! Let’s keep this trend going strong and show small businesses the love they deserve. #SupportSmallBusiness, because together, we can make a difference! ✨🛍️🌟
