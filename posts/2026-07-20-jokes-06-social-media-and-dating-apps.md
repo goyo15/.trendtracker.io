@@ -1,0 +1,5 @@
+# Social media and dating apps — 2026-07-20
+
+Hey friends, let’s talk about the juicy topic of social media and dating apps! 📱💕 We all know these platforms can be a total mixed bag – from swiping left and right on Tinder to posting #relationshipgoals pics on Insta, it’s a wild world out there. Social media can be a great way to connect with new people and even find potential baes, but it can also be a total drama-fest. 🙄 Remember, not everything you see online is real – filters and perfectly curated feeds can be deceiving. 
+
+When it comes to dating apps, it’s important to stay safe and trust your gut. Meeting up with someone IRL from an app can be exciting, but make sure to meet in a public place and let a friend know where you’re going. And always remember: you are worth more than the number of likes or matches you get. Keep it real, stay safe, and remember to have fun along the way! 🌟 #teenblogger #datingadvice 🌈

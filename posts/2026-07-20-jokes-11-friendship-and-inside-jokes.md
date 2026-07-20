@@ -1,0 +1,5 @@
+# Friendship and inside jokes — 2026-07-20
+
+Hey team! Let’s talk about inside jokes, aka the secret language of friendship. Think about it - those inside jokes you share with your squad are like little treasures that make your bond unbreakable. They’re like customized memes that only you and your crew can truly appreciate. Whether it’s a funny phrase, a weird dance move, or a random sound effect, inside jokes are the glue that holds your friendship together during even the toughest times. 
+
+These jokes might seem silly to outsiders, but who cares? They’re your personal brand of humor, your own mini universe of comedy gold. So next time you’re laughing so hard you can barely breathe because of an inside joke, remember how lucky you are to have friends who just get you. Embrace the weirdness, cherish the laughter, and keep those inside jokes coming - because they’re the special sauce that makes your friendships extra spicy. Stay goofy and stay tight, fam! ✌🏼🤪 #SquadGoals #InsideJokesFTW

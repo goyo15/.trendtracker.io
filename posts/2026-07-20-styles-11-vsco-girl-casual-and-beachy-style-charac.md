@@ -1,0 +1,5 @@
+# VSCO Girl: Casual and beachy style characterized by oversized t-shirts, scrunchies, Birkenstocks, and Hydro Flasks. — 2026-07-20
+
+Hey there, fellow trendsetters! Let's chat about the iconic VSCO Girl aesthetic that’s taking over our feeds faster than you can say “sksksksk”! This laid-back and beachy style is all about rocking oversized tees, colorful scrunchies, comfy Birkenstocks, and toting around a Hydro Flask like it’s a fashion statement. It’s the epitome of casual cool, with a vibe that says “I just rolled out of bed, but make it fashion”. 
+
+Whether you’re chilling at the beach, hitting the mall, or just hanging with friends, this trend is all about effortless vibes and carefree fun. So, grab your scrunchie, slip on those Birks, and let’s embrace the VSCO Girl style like the trendsetters we are. Who knows, maybe we’ll start a new viral dance craze next! Stay stylish, stay fabulous, and keep spreading those positive vibes, my fellow VSCO Girls! #VSCOgirlforlife 💁🏼‍♀️🌊🌈✨

@@ -1,0 +1,5 @@
+# Family and sibling jokes — 2026-07-20
+
+Hey, fam! Let’s talk about the ultimate sibling struggle- the never-ending sibling jokes. From the classic “Are you adopted?” to “Do you ever stop eating?” there’s no shortage of roasts flying between siblings. But let’s be real, these jokes are what keep family life spicy. They might make us roll our eyes or even unleash the occasional eye-roll tsunami, but deep down, we know they’re the secret sauce that bonds us together. 
+
+Whether it’s teasing your sibling about their messy room or poking fun at their questionable fashion choices, these jokes are a constant reminder that no matter what, your sibling will always have your back. So next time your sibling drops a cringeworthy joke, just embrace the cheesiness and fire back with an even funnier one. After all, family that roasts together, stays together. So keep the sibling banter alive and let the eye rolls continue! ✌🏼 #SiblingSass #FamilyFunnies
