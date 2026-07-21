@@ -1,0 +1,5 @@
+# Slang and trendy phrases — 2026-07-21
+
+Hey, squad! Let’s chat about slang and trendy phrases that are totally lit right now. I mean, who doesn’t love spicing up their vocab with some on-point language, am I right? From “sksksk” to “yeet” and “stan,” it’s all about keeping up with the latest lingo. And let’s not forget about “okurrr,” because who doesn’t want to add that extra sass to their conversations?
+
+But here’s the tea – slang comes and goes faster than you can say “basic.” So, stay woke and make sure you’re not being a total cringefest by using outdated terms. Keep it fresh, keep it real, and remember that language is like fashion – always evolving. So, next time you want to flex your vocab game, just remember to stay savage and slay those trendy phrases like the queen you are. Stay slick, my friends! #OnFleek #SlayingTheSlang
