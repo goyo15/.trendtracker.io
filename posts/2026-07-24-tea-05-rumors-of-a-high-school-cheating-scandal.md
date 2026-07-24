@@ -1,0 +1,5 @@
+# Rumors of a high school cheating scandal — 2026-07-24
+
+Hey, babes! 🌟 Let’s dish on the latest tea at our high school 😱 Rumors are swirling about a juicy cheating scandal happening right under our noses! 🕵️‍♀️ Apparently, some students have been caught red-handed copying each other’s homework and tests 🤭 Can you even? And get this – word on the street is that it’s not just a few bad apples, but a whole network of scheming students involved. 🤯
+
+But hey, let’s keep it real – cheating is a major no-no, fam! 🚫 We all know the grind of school can be tough, but taking shortcuts ain’t the way to slay, am I right? 🙅‍♀️ Plus, think of the consequences if they get busted! 🚔 Let’s stay on our grind, put in the work, and keep our integrity intact, babes! 💪 Share your thoughts in the comments – what would you do if you caught someone cheating, or worse, got caught yourself? 😳 Stay fierce, my loves! 💋 #NoShortcuts #SchoolScandalQueen 📚👑

@@ -1,0 +1,5 @@
+# "VSCO girls" - Known for their love of scrunchies, Hydro Flasks, and oversized t-shirts, VSCO girls have taken TikTok by storm with their laid-back and environmentally conscious lifestyle. — 2026-07-24
+
+Hey, fam! Let's spill the tea on VSCO girls taking over TikTok! 🌊🌸 Rocking scrunchies, Hydro Flasks, and those oversized tees, these girls are all about that chill vibe and saving the planet, one reusable straw at a time. Can we just say, major respect for their eco-conscious mindset! 🌍💚 And have you seen their effortless beachy waves and minimal makeup? Obsessed! 🌊😍
+
+But for real, VSCO girls are more than just a trend – they're spreading the message of sustainability and self-love in the coolest way possible. So next time you catch a glimpse of those friendship bracelets and metal straws, remember it's not just about the aesthetic, it's about making a positive impact. Embrace your inner VSCO girl, grab your Hydro Flask, and let's save the turtles together! 🐢✌️#Sksksk #And I Oop #SaveTheTurtles
